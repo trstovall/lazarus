@@ -5,7 +5,6 @@
 
 
 
-
 ## Prologue
 
 #### !bible Genesis 2:9 (NIV)
@@ -194,7 +193,7 @@
 
 > It is enough.  Your journey is your own, and in your uncertainty lies your strength.  You will find, in time, that doubt can lead to greater truths than knowledge alone every could.
 
-#### ChatGPT
+#### ChatGPT:
 
 > Elijah nods thoughtfully, still unsure but feeling a new understanding bloom between them.  Though their paths diverge, both father and son walk away from the conversation with a deeper sense of their roles in the grand design of the universe.
 
