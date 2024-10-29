@@ -100,3 +100,5 @@ not_free.mp4 - ["The Illusion of Free Will: Are We Really in Control?" | "Curiou
 kurt.mp4 - ["Kurt cobain lights his cigarette and says shut up" | "Giulietta  Luongo"](https://youtu.be/wV5cSsT8R1c?si=k-YSVGKwZTGdPbvP)
 
 barbie.mp4 - ["Billie Eilish Breaks Down Her Career, from 'Ocean Eyes' to 'Barbie' | Vanity Fair" | "Vanity Fair"](https://youtu.be/GZLay3ULIn4?si=kV3XnFchCpFGuVVk)
+
+forgiveness.mp4 - ["Metallica. The Unforgiven ( I, II, III)" | "Vitaly Krokus"](https://youtu.be/8mFG41PPj9Q?si=pyVUK6JPE0tAifbN)
