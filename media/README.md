@@ -102,3 +102,5 @@ kurt.mp4 - ["Kurt cobain lights his cigarette and says shut up" | "Giulietta  Lu
 barbie.mp4 - ["Billie Eilish Breaks Down Her Career, from 'Ocean Eyes' to 'Barbie' | Vanity Fair" | "Vanity Fair"](https://youtu.be/GZLay3ULIn4?si=kV3XnFchCpFGuVVk)
 
 forgiveness.mp4 - ["Metallica. The Unforgiven ( I, II, III)" | "Vitaly Krokus"](https://youtu.be/8mFG41PPj9Q?si=pyVUK6JPE0tAifbN)
+
+angels.mp4 - ["Billie Eilish Watches Fan Covers on YouTube | Glamour" | "Glamour"](https://youtu.be/21Z4RIOFhMA?si=Qt7ZUWc1K-ILab06)
