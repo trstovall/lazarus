@@ -149,7 +149,10 @@ hope.mp4 - ["https://youtu.be/CdhqVtpR2ts?si=nrcNzTJ7uAQT7XPO" | "Evanescence"](
 
 anthem.mp4 - ["Rob Zombie - Dragula" | "Rob Zombie"](https://youtu.be/EqQuihD0hoI?si=VrDHJYX-I6xbUsrR)
 
+yellow.mp4 - ["Coldplay - Yellow (Official Video)" | "Coldplay"](https://youtu.be/yKNxeF4KMsY?si=ax0-OH7qgpsuZcPj)
+
 THE END.
+
 
 ## Outro
 
