@@ -145,6 +145,10 @@ lorde.mp4 - ["LORDE - Royals" | "Lorde"](https://youtu.be/LFasFq4GJYM?si=aqnUqUr
 
 princess.mp4 - ["Miley Cyrus - Wrecking Ball (Official Video)" | "Miley Cyrus"](https://youtu.be/My2FRPA3Gf8?si=C_U_CBgCF1aHgSNi)
 
+hope.mp4 - ["https://youtu.be/CdhqVtpR2ts?si=nrcNzTJ7uAQT7XPO" | "Evanescence"](https://youtu.be/CdhqVtpR2ts?si=nrcNzTJ7uAQT7XPO)
+
+anthem.mp4 - ["Rob Zombie - Dragula" | "Rob Zombie"](https://youtu.be/EqQuihD0hoI?si=VrDHJYX-I6xbUsrR)
+
 
 ## Outro
 
