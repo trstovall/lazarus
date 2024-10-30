@@ -160,6 +160,10 @@ princess.mp4 - ["Miley Cyrus - Wrecking Ball (Official Video)" | "Miley Cyrus"](
 
 !["ryan"](https://github.com/trstovall/lazarus/blob/main/media/ryan.jpg?raw=true)
 
+"[Merlin](https://www.facebook.com/uberrheogenic)"
+
+!["merlin"](https://github.com/trstovall/lazarus/blob/main/media/merlin.jpg?raw=true)
+
 "humour"
 
 !["humour"](https://github.com/trstovall/lazarus/blob/main/media/humour.jpg?raw=true)
@@ -179,3 +183,7 @@ princess.mp4 - ["Miley Cyrus - Wrecking Ball (Official Video)" | "Miley Cyrus"](
 "freedom"
 
 !["freedom"](https://github.com/trstovall/lazarus/blob/main/media/freedom.jpg?raw=true)
+
+"whole"
+
+!["whole"](https://github.com/trstovall/lazarus/blob/main/media/whole.png?raw=true)
