@@ -144,5 +144,5 @@ queen.mp4 - ["Britney Spears - Toxic (Official HD Video)" | "Britney Spears"](ht
 
 "synergy"
 
-!["synergy"](https://github.com/trstovall/lazarus/media/blob/main/synergy.jpg?raw=true)
+!["synergy"](https://github.com/trstovall/lazarus/blob/main/media/synergy.jpg?raw=true)
 
