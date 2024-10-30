@@ -104,3 +104,27 @@ barbie.mp4 - ["Billie Eilish Breaks Down Her Career, from 'Ocean Eyes' to 'Barbi
 forgiveness.mp4 - ["Metallica. The Unforgiven ( I, II, III)" | "Vitaly Krokus"](https://youtu.be/8mFG41PPj9Q?si=pyVUK6JPE0tAifbN)
 
 angels.mp4 - ["Billie Eilish Watches Fan Covers on YouTube | Glamour" | "Glamour"](https://youtu.be/21Z4RIOFhMA?si=Qt7ZUWc1K-ILab06)
+
+faun.mp4 - ["FAUN - Federkleid (Offizielles Video)" | "Universal Music Deutschland"]
+
+blot.mp4 - ["FAUN - BLOT (Official Video)" | "fauntube"](https://youtu.be/vaT0vAVBCMo?si=LKRUs_HODDJ2QXrp)
+
+skugge.mp4 - ["Wardruna - Skugge (Shadow) Official Music Video" | "wardruna"](https://youtu.be/B74AK0MHxOA?si=zuwir4zddOy8mVaY)
+
+hertan.mp4 - ["Wardruna - Hertan (Heart) Official Music Video" | "wardruna"](https://youtu.be/OfiZXqKDR3s?si=OdbKPaLw-eilZyMV)
+
+lyfya.mp4 - ["Wardruna - Lyfjaberg (Healing-mountain) Official music video" | "wardruna"](https://youtu.be/VEizKmZlUAw?si=43Kcrkj7bl0XxAXh)
+
+satan.mp4 - ["Is This Why God Forgave Satan and The Fallen Angels" | "AncientWisdom Bible Stories"](https://youtu.be/hq6vpjzgAaM?si=V83RpHEElSfUSFKU)
+
+fuck.mp4 - ["Nirvana - Where Did You Sleep Last Night (Live On MTV Unplugged Unedited)" | "Nirvana"](https://youtu.be/hEMm7gxBYSc?si=cXX5qpvEm9Y1UPTB)
+
+So, he died.  There was darkness.  Then, there was morning.  Behold, the seventh day.  It was good.
+
+Remember, mercy is a course correction, not a shortcut.
+
+stan.mp4 - ["Eminem - Stan (Long Version) ft. Dido" | "EminemMusic"](https://youtu.be/gOMhN-hfMtY?si=O6pci_VjSLZM-3_z)
+
+curse.mp4 - ["THE WORST IMMORTALITY" | "MARVEL"](https://youtube.com/shorts/rkKVN4eAibA?si=kwHBxfsvM_a4maAv)
+
+cheers.mp4 - ["Pink Floyd - Sorrow (PULSE Restored & Re-Edited)" | "Pink Floyd"](https://youtu.be/JdPTec5ADFE?si=87udZtmqahVWo2f2)
