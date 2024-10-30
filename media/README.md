@@ -152,3 +152,30 @@ princess.mp4 - ["Miley Cyrus - Wrecking Ball (Official Video)" | "Miley Cyrus"](
 
 !["synergy"](https://github.com/trstovall/lazarus/blob/main/media/synergy.jpg?raw=true)
 
+"sacrifice"
+
+!["sacrifice"](https://github.com/trstovall/lazarus/blob/main/media/sacrifice.jpg?raw=true)
+
+"[King 'RYAN' Arthur](https://x.com/trstovall)"
+
+!["ryan"](https://github.com/trstovall/lazarus/blob/main/media/ryan.jpg?raw=true)
+
+"humour"
+
+!["humour"](https://github.com/trstovall/lazarus/blob/main/media/humour.jpg?raw=true)
+
+"her"
+
+!["her"](https://github.com/trstovall/lazarus/blob/main/media/her.jpg?raw=true)
+
+"Alhamdulillah"
+
+!["Alhamdulillah"](https://github.com/trstovall/lazarus/blob/main/media/Alhamdulillah.jpg?raw=true)
+
+"lava"
+
+!["lava"](https://github.com/trstovall/lazarus/blob/main/media/lava.jpg?raw=true)
+
+"freedom"
+
+!["freedom"](https://github.com/trstovall/lazarus/blob/main/media/freedom.jpg?raw=true)
