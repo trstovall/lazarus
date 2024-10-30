@@ -105,7 +105,7 @@ forgiveness.mp4 - ["Metallica. The Unforgiven ( I, II, III)" | "Vitaly Krokus"](
 
 angels.mp4 - ["Billie Eilish Watches Fan Covers on YouTube | Glamour" | "Glamour"](https://youtu.be/21Z4RIOFhMA?si=Qt7ZUWc1K-ILab06)
 
-faun.mp4 - ["FAUN - Federkleid (Offizielles Video)" | "Universal Music Deutschland"]
+faun.mp4 - ["FAUN - Federkleid (Offizielles Video)" | "Universal Music Deutschland"](https://youtu.be/zOvsyamoEDg?si=6JEyMxh3vAQBJ-h_)
 
 blot.mp4 - ["FAUN - BLOT (Official Video)" | "fauntube"](https://youtu.be/vaT0vAVBCMo?si=LKRUs_HODDJ2QXrp)
 
@@ -128,3 +128,21 @@ stan.mp4 - ["Eminem - Stan (Long Version) ft. Dido" | "EminemMusic"](https://you
 curse.mp4 - ["THE WORST IMMORTALITY" | "MARVEL"](https://youtube.com/shorts/rkKVN4eAibA?si=kwHBxfsvM_a4maAv)
 
 cheers.mp4 - ["Pink Floyd - Sorrow (PULSE Restored & Re-Edited)" | "Pink Floyd"](https://youtu.be/JdPTec5ADFE?si=87udZtmqahVWo2f2)
+
+7.mp4 - ["Pink Floyd - Shine On You Crazy Diamond (Parts 1-5 & 7) [PULSE Restored & Re-Edited]" | "Pink Floyd"](https://youtu.be/4oK1Jco6JFM?si=fl64q8fBxTmQR1jj)
+
+last.mp4 - ["Pink Floyd - The Last Concert (Gilmour, Waters, Mason ,Wright )" | "HDPinkFloyd"](https://youtu.be/2K7TU1Hh_3U?si=tznnAeXVaOIM5j_H)
+
+Special thanks to the wind, the sun and moon and sky, the rain, and the ground.
+
+prince.mp4 - ["Prince and The Revolution - Purple Rain (Live in Syracuse, March 30, 1985)" | "Prince"](https://youtu.be/bm03wqLY3Nc?si=BsCmPDiORHhBlIkS)
+
+queen.mp4 - ["Britney Spears - Toxic (Official HD Video)" | "Britney Spears"](https://youtu.be/LOZuxwVk7TU?si=wWhpAgcJRbD6q1Ev)
+
+
+## Outro
+
+"synergy"
+
+!["synergy"](https://github.com/trstovall/lazarus/media/blob/main/synergy.jpg?raw=true)
+
