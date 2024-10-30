@@ -139,6 +139,12 @@ prince.mp4 - ["Prince and The Revolution - Purple Rain (Live in Syracuse, March 
 
 queen.mp4 - ["Britney Spears - Toxic (Official HD Video)" | "Britney Spears"](https://youtu.be/LOZuxwVk7TU?si=wWhpAgcJRbD6q1Ev)
 
+lady.mp4 - ["Lady Gaga - Bad Romance (Official Music Video)" | "Lady Gaga"](https://youtu.be/qrO4YZeyl0I?si=LRSIXdKAgqLJu3qq)
+
+lorde.mp4 - ["LORDE - Royals" | "Lorde"](https://youtu.be/LFasFq4GJYM?si=aqnUqUrTfKGIABe7)
+
+princess.mp4 - ["Miley Cyrus - Wrecking Ball (Official Video)" | "Miley Cyrus"](https://youtu.be/My2FRPA3Gf8?si=C_U_CBgCF1aHgSNi)
+
 
 ## Outro
 
