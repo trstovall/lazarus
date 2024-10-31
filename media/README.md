@@ -437,6 +437,8 @@ https://youtu.be/56_imRoi1mw?si=juk_J81oqk67gBPS
 Jambi | TOOL
 https://youtu.be/aUK8KOPNcb0?si=sJZhHbFRSsE1lXCD
 
+The word "evil" was invented by Eve to describe the serpent guarding the tree of pride.  She used it to describe the serpent to Adam.  In his righteous fury, Adam slayed the beast.  They celebrated with the olives picked from the tree of pride.  Upon finding that they tasted just like the olives from the tree of life, they were ashamed.  The tree of pride transformed into a flaming sword.  Adam and Eve fled, and the tree of life was hidden.  Here it is.
+
 
 ## Outro
 
