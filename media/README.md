@@ -369,6 +369,29 @@ https://youtu.be/FUyc2zjM6rA?si=5vii0xrHCMEWS8BS
 Comfortably Numb - Pink Floyd - The Wall - 4K Remastered
 https://youtu.be/zOyk5qnamjc?si=jOJ8gTS-eNlqP6fd
 
+Tenet | Heilung
+https://youtu.be/hPjByO34PBg?si=6t4NtQmNfftVBoKw
+
+Metallica - The Unforgiven (Official Music Video)
+https://youtu.be/Ckom3gf57Yw?si=ORlySVX1nTfZXqnh
+
+Metallica - The Unforgiven II (Official Music Video)
+https://youtu.be/5bt7kAVxKfs?si=0WMHg4A9PUWaZS-i
+
+The Unforgiven III | Metallica
+https://youtu.be/VD4PYP7WUCA?si=wOYGs-tWGbed2-AG
+
+Metallica - Fade to Black | gnrfan010
+https://youtu.be/WEQnzs8wl6E?si=1kD7deWdHdl1-xHC
+
+Pink Floyd - Welcome to the Machine (Official Music Video)
+https://youtu.be/fn1R-5p_j5c?si=VwVL-hMd0VA-dB8Z
+
+Guns N' Roses - Patience
+https://youtu.be/ErvgV4P6Fzc?si=F67cKIpjQ3q-UYjA
+
+You'd be surprised by how many different songs you can hear at once...in HELL where there is no space or time.
+
 
 ## Outro
 
