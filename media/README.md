@@ -402,6 +402,9 @@ Allahu Akbar.
 Guns N' Roses - November Rain
 https://youtu.be/8SbUC-UaAxE?si=rAaLD6kpQRYjJXBc
 
+My Jolly Sailor Bold - Ashley Serena
+https://youtu.be/tPLodwT58nE?si=g3GMXqNpE0v5svMG
+
 
 ## Outro
 
@@ -460,3 +463,8 @@ https://youtu.be/8SbUC-UaAxE?si=rAaLD6kpQRYjJXBc
 "tempest"
 
 !["tempest"](https://github.com/trstovall/lazarus/blob/main/media/tempest.png?raw=true)
+
+"Delta"
+
+!["delta"](https://github.com/trstovall/lazarus/blob/main/media/delta.png?raw=true)
+
