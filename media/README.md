@@ -223,6 +223,10 @@ One.
 
 Jordan Peterson, come clean my room.  Your insistence on your understanding of evil has led you to Logos, a false idol.  Logos is a tool.  You are a man.  Know the difference.
 
+Two.
+
+Don't be superficial.
+
 
 ## Outro
 
