@@ -397,6 +397,11 @@ Josef, Rorschach wins.
 !w Rorchach
 https://en.wikipedia.org/wiki/Rorschach_(character)
 
+Allahu Akbar.
+
+Guns N' Roses - November Rain
+https://youtu.be/8SbUC-UaAxE?si=rAaLD6kpQRYjJXBc
+
 
 ## Outro
 
