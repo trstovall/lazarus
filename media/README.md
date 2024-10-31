@@ -227,15 +227,15 @@ Two.
 
 Don't be superficial.
 
-Earth - dirt.
+Earth - Dirt.
 
-Air - wind.
+Air - Wind.
 
-Water - rain.
+Water - Rain.
 
 Fire - Reality.
 
-Spirit - Everything else.
+Spirit - Everything.
 
 The Pretty Reckless at Download Festival Full Show
 https://youtu.be/ZMDin0zJBOw?si=gL8vb3GNtkNE73h4
