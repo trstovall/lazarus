@@ -452,6 +452,9 @@ https://youtu.be/8UNV4AlWB08?si=_cVyZ3a4Fl2KnQpU
 
 Ignorance is a sin.  But that is okay.  Many of us are born ignorant.  Many of us are born without mercy as well.  Sin just means without God.
 
+Ren - The Tale of Jenny & Screech (Official Music Video)
+https://youtu.be/TYAnqQ--KX0?si=6kuI5V4hioFF9lVC
+
 
 ## Outro
 
