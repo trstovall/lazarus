@@ -394,6 +394,9 @@ You'd be surprised by how many different songs you can hear at once...in HELL wh
 
 Josef, Rorschach wins.
 
+!w Rorchach
+https://en.wikipedia.org/wiki/Rorschach_(character)
+
 
 ## Outro
 
