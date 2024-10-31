@@ -392,6 +392,8 @@ https://youtu.be/ErvgV4P6Fzc?si=F67cKIpjQ3q-UYjA
 
 You'd be surprised by how many different songs you can hear at once...in HELL where there is no space or time.
 
+Josef, Rorschach wins.
+
 
 ## Outro
 
