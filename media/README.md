@@ -205,7 +205,23 @@ elliot_2.mp4 - ["The Gospel of Thomas: A Forbidden Insight into Jesus Teachings"
 
 not_god.mp4 - ["We Fell For The Oldest Lie On The Internet" | "Kurzgesagt – In a Nutshell"](https://youtu.be/bgo7rm5Maqg?si=nGt9AphgRSG5_hXc)
 
-Our Heart is more than just the pump.  It's more than the blood.  It's more than the pipes.  It's the Spirit.  Make it Wholey.  Enlightment is an unfolding.  Let God (Holy Spirit) guide it.  Work is a waste of time.
+Our Heart is more than just the pump.  It's more than the blood.  It's more than the pipes.  It's the Spirit.  Make it Wholey.  Enlightment is an unfolding.  Let God (Holy Spirit) guide it.  "Work is a waste of time."  "Without time, music is worthless."
+
+heil.mp4 - ["Avatar Hail The Apocalypse" | "Olga Kondrashova"](https://youtu.be/DMo7fZ48Unk?si=A9Jpp3i2ma38n03T)
+
+Goddess.mp4 - [""](https://youtu.be/CbI79e5iZKs?si=KgMuF_6jfjpgXn_Q)
+
+art - https://www.facebook.com/profile.php?id=61563743355271
+
+Beautiful.
+
+Mountain.mp4 - [""](https://youtu.be/16QXu3E3NEU?si=BFE-CFD5chvdJOQ6)
+
+Heart.mp4 - [""](https://youtu.be/txBfhpm1jI0?si=H_DFVCpPCiFnblfo)
+
+One.
+
+Jordan Peterson, come clean my room.  Your insistence on your understanding of evil has led you to Logos, a false idol.  Logos is a tool.  You are a man.  Know the difference.
 
 
 ## Outro
