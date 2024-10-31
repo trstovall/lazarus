@@ -301,6 +301,68 @@ https://youtu.be/6Ejga4kJUts?si=hcbPPpn9cXsg5OBz
 
 I'm beginning to suspect that Jesus liked to play Dungeons and Dragons.
 
+Jesus, imagine you are in Hell.  How do you get out?
+
+Rob Zombie - Dragula
+https://youtu.be/EqQuihD0hoI?si=2jwXQUxfXlSjvnW-
+
+Rob Zombie - Living Dead Girl
+https://youtu.be/BvsMPOfblfg?si=OU0IOjFbLeKLtJfU
+
+Britney Spears - Toxic (Official HD Video)
+https://youtu.be/LOZuxwVk7TU?si=xRt_B9d3hNiI3Ncu
+
+Could America Handle Universal Basic Income?
+https://youtu.be/Rw0pohkYG44?si=n8g3mAynHFzJpkvQ
+
+David Gilmour - Comfortably Numb (Live At Pompeii)
+https://youtu.be/eHKG7EMxWW8?si=HQ5GphYX75lAhD3t
+
+What is Satanism? | Let's Talk Religion
+https://youtu.be/znIFJy9sKcc?si=KVWD1qRTVRuDjQ-s
+
+Okay.  How do you save Satan?
+
+Matrix Ending | Dustin Hoeppner
+https://youtu.be/ruSTiOmiyWw?si=Gqsmk-sxEvrLLZc_
+
+The Matrix end credits by Rage Against the Machine | doggmadogg
+https://youtu.be/aTL4qIIxg8A?si=r2SycboNAVC5aCap
+
+clubbed to death - Matrix soundtrack | Stronghome91
+https://youtu.be/Brl7WmHDG-E?si=qbm_e5AJ4mThLAEU
+
+Evil is a virus.  This book is the antivirus.
+
+Evanescence - Lithium
+https://youtu.be/PJGpsL_XYQI?si=_kXUfsGlSn6PVq7P
+
+In The End [Official HD Music Video] - Linkin Park
+https://youtu.be/eVTXPUF4Oz4?si=KrF3nFBjYedIQuL-
+
+Rob D - Clubbed To Death [Kurayamino Mix] (The Matrix) | Chloé
+https://youtu.be/eH7qfq_KkVM?si=_bClmBvc-vTiPcYu
+
+Loading...The House of Jerusalem.
+
+In the House, In a Heartbeat - John Murphy (28 Days Later Soundtrack) [Metal Remix]
+https://youtu.be/c8QNTsOJ1kc?si=HUfvJ63ZHdI7pfYD
+
+Kiki Rockwell - Syrena (Official Music Video)
+https://youtu.be/28Sdj4DS32g?si=mbRbL_dBR3IUCIKd
+
+Heilung - Traust LIVE | LIFA Iotungard
+https://youtu.be/viqXlfkbWmQ?si=9em6GCZmJQ3s6KEF
+
+Casting Crowns - Praise You In This Storm (Live from YouTube Space New York)
+https://youtu.be/MgpaULjZOl8?si=ALrQ2OA39JqA610Y
+
+Doja Cat - Paint The Town Red (Official Video)
+https://youtu.be/m4_9TFeMfJE?si=0FdBT4pBndd55i3y
+
+Alfa Dhir Haiti | Heilung
+https://youtu.be/b2vRLP7lfMg?si=j6SQbt7Ocg5UQIwQ
+
 
 ## Outro
 
