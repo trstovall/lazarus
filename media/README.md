@@ -261,6 +261,18 @@ Now, write your destiny, you Jolly Sailor Bold.
 Roger Waters - Mother
 https://youtu.be/9lCFaSL9aSE?si=hZee8Y4aBdy67FZm
 
+Pink Floyd - The Great Gig In The Sky (50th Anniversary Competition Winner's Video)
+https://youtu.be/MTovRtERP5U?si=_JzDul9hAF19ZIML
+
+System Of A Down - Hypnotize (Official HD Video)
+https://youtu.be/LoheCz4t2xc?si=cexuqkpcgr-utQhx
+
+Evanescence - Bring Me To Life (Official HD Music Video)
+https://youtu.be/3YxaaGgTQYM?si=01Dem3LbetU0dJsB
+
+Roger Waters - Two Suns In The Sunset [Corrected Audio]
+https://youtu.be/4vu24954p4k?si=OZzxTLI9O6aw_9zf
+
 
 ## Outro
 
