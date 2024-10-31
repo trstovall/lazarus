@@ -205,7 +205,7 @@ elliot_2.mp4 - ["The Gospel of Thomas: A Forbidden Insight into Jesus Teachings"
 
 not_god.mp4 - ["We Fell For The Oldest Lie On The Internet" | "Kurzgesagt – In a Nutshell"](https://youtu.be/bgo7rm5Maqg?si=nGt9AphgRSG5_hXc)
 
-Our Heart is more than just the pump.  It's more than the blood.  It's more than the pipes.  It's the Spirit.  Make it Wholey.  Enlightment is an unfolding.  Let God (Holy Spirit) guide it.
+Our Heart is more than just the pump.  It's more than the blood.  It's more than the pipes.  It's the Spirit.  Make it Wholey.  Enlightment is an unfolding.  Let God (Holy Spirit) guide it.  Work is a waste of time.
 
 
 ## Outro
