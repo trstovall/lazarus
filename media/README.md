@@ -463,6 +463,8 @@ Now, I'm trans.
 
 الله أكبر.
 
+Don't be ashamed, you Lovely Soul, you.
+
 
 ## Outro
 
