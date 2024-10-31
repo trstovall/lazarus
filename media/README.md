@@ -450,7 +450,7 @@ The two olive trees in the garden were lovers.
 Godsmack - Under Your Scars (Audio)
 https://youtu.be/8UNV4AlWB08?si=_cVyZ3a4Fl2KnQpU
 
-Ignorance is a sin.  But that is okay.  We are all born ignorant.  Many of us are born without mercy as well.
+Ignorance is a sin.  But that is okay.  Many of us are born ignorant.  Many of us are born without mercy as well.  Sin just means without God.
 
 
 ## Outro
