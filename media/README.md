@@ -444,6 +444,9 @@ https://youtu.be/PSLOCedWmWM?si=aGa8Q2ZDhqLwEhXX
 
 The two olive trees in the garden were lovers.
 
+Godsmack - Under Your Scars (Audio)
+https://youtu.be/8UNV4AlWB08?si=_cVyZ3a4Fl2KnQpU
+
 
 ## Outro
 
