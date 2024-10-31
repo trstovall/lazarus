@@ -507,3 +507,14 @@ The two olive trees in the garden were lovers.
 
 !["delta"](https://github.com/trstovall/lazarus/blob/main/media/delta.png?raw=true)
 
+1.
+
+!["test_1"](https://github.com/trstovall/lazarus/blob/main/media/test_1.png?raw=true)
+
+2.
+
+!["test_2"](https://github.com/trstovall/lazarus/blob/main/media/test_2.png?raw=true)
+
+3.
+
+!["test_3"](https://github.com/trstovall/lazarus/blob/main/media/test_3.png?raw=true)
