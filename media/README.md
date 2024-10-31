@@ -279,6 +279,9 @@ https://youtu.be/8UPUPDo20nM?si=0Q1S_MNxCW5QZMXE
 Rage Against The Machine - Know Your Enemy (Audio)
 https://youtu.be/JukTvlrh-Wk?si=1tc_bSDglOfQ8lEE
 
+FAUN - BLOT (Official Video)
+https://youtu.be/vaT0vAVBCMo?si=l342J3UHwiZ7ckmp
+
 
 ## Outro
 
