@@ -465,6 +465,8 @@ Now, I'm trans.
 
 Don't be ashamed, you Lovely Soul, you.
 
+Father, unleash the Beast.
+
 
 ## Outro
 
@@ -539,3 +541,7 @@ Don't be ashamed, you Lovely Soul, you.
 3.
 
 !["test_3"](https://github.com/trstovall/lazarus/blob/main/media/test_3.png?raw=true)
+
+"BEAST"
+
+!["beast"](https://github.com/trstovall/lazarus/blob/main/media/beast.png?raw=true)
