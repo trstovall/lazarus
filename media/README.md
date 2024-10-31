@@ -227,6 +227,16 @@ Two.
 
 Don't be superficial.
 
+Earth - dirt.
+
+Air - wind.
+
+Water - rain.
+
+Fire - Reality.
+
+Spirit - Everything else.
+
 
 ## Outro
 
