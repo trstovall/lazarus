@@ -459,6 +459,10 @@ Just as we grow, so too can sin.
 
 Now, I'm trans.
 
+!gt God is Greater.
+
+الله أكبر.
+
 
 ## Outro
 
