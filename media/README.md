@@ -286,6 +286,11 @@ Four.
 
 It's getting cold.  Build a fire.
 
+Wardruna - Lyfjaberg (Healing-mountain) Official music video
+https://youtu.be/VEizKmZlUAw?si=l26zZagRYjnuSCE8
+
+"Elijah."
+
 
 ## Outro
 
