@@ -296,6 +296,9 @@ https://youtu.be/tgIqecROs5M?si=_nJaSxdHoEiINrr3
 
 "Evil" is an evil word.
 
+The Cranberries - Zombie (Official Music Video)
+https://youtu.be/6Ejga4kJUts?si=hcbPPpn9cXsg5OBz
+
 
 ## Outro
 
