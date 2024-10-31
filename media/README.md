@@ -405,6 +405,22 @@ https://youtu.be/8SbUC-UaAxE?si=rAaLD6kpQRYjJXBc
 My Jolly Sailor Bold - Ashley Serena
 https://youtu.be/tPLodwT58nE?si=g3GMXqNpE0v5svMG
 
+Asteria:
+- songs for sirens - a playlist
+  https://youtu.be/RA8hv_63ZlY?si=iHRn4iMoqji7wxFz
+
+- hogwarts ambience + music for studying - a playlist
+  https://youtu.be/ZG9A0Nidb6E?si=Qp5COF41esC0tLSJ
+
+"restoration"
+
+My son is young.  We were walking in the grass when I spotted a ladybug.  I pointed it out to him, and he went to pick it up.  He kept trying to pinch it.  I kept explaining that he had to put his hand under it.  He pinched it.  His fingers were red with blood.  He placed the ladybug in my palm.  It rested on its back with the stillness of death.  I prayed.  "God, please restore the life of this ladybug."  After a moment, it rolled over and flew away.
+
+The ladybug:
+
+Sleeper (Woody Allen, 1973) - The Escape [sub. español] | Oskar G. Herrera
+woody.mp4 - https://youtu.be/mKRqvOwUsLg?si=TrtifANcU2ywfcYK
+
 
 ## Outro
 
