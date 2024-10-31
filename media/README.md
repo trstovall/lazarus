@@ -276,6 +276,9 @@ https://youtu.be/4vu24954p4k?si=OZzxTLI9O6aw_9zf
 Wardruna - Voluspá (Official music video)
 https://youtu.be/8UPUPDo20nM?si=0Q1S_MNxCW5QZMXE
 
+Rage Against The Machine - Know Your Enemy (Audio)
+https://youtu.be/JukTvlrh-Wk?si=1tc_bSDglOfQ8lEE
+
 
 ## Outro
 
