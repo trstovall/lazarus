@@ -282,6 +282,10 @@ https://youtu.be/JukTvlrh-Wk?si=1tc_bSDglOfQ8lEE
 FAUN - BLOT (Official Video)
 https://youtu.be/vaT0vAVBCMo?si=l342J3UHwiZ7ckmp
 
+Four.
+
+It's getting cold.  Build a fire.
+
 
 ## Outro
 
