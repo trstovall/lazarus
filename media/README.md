@@ -414,7 +414,7 @@ Asteria:
 
 "restoration"
 
-My son is young.  We were walking in the grass when I spotted a ladybug.  I pointed it out to him, and he went to pick it up.  He kept trying to pinch it.  I kept explaining that he had to put his hand under it.  He pinched it.  His fingers were red with blood.  He placed the ladybug in my palm.  It rested on its back with the stillness of death.  I prayed.  "God, please restore the life of this ladybug."  After a moment, it rolled over and flew away.
+My son is young.  We were walking in the grass when I spotted a ladybug.  I pointed it out to him, and he went to pick it up.  He kept trying to pinch it.  I kept explaining that he had to put his hand under it.  He pinched it.  His fingers were red with blood.  He placed the ladybug in my palm.  It rested on its back with the stillness of death.  I prayed.  "God, please restore the life of this ladybug."  After a moment, it rolled over and flew away.  That is something that Death alone could never do.
 
 The ladybug:
 
