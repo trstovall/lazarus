@@ -240,6 +240,27 @@ Spirit - Everything else.
 The Pretty Reckless at Download Festival Full Show
 https://youtu.be/ZMDin0zJBOw?si=gL8vb3GNtkNE73h4
 
+Three.
+
+Jihad.  Allahu Akbar.  Every moment you die.  Every moment you are reborn.  Grow.
+
+Wardruna - Skugge (Shadow) Official Music Video
+https://youtu.be/B74AK0MHxOA?si=cQux15-DoYe4DyBO
+
+"Goodbye Blue Sky" | "Pink Floyd" | "The Wall"
+https://youtu.be/bn6YnUt4Vuk?si=2ZAfQhkj93K7UHZi
+
+Nirvana - Something In The Way | The Batman OST
+https://youtu.be/fVeI5xcnsd8?si=oAfiEN5lQlsZq33A
+
+Wardruna - Hertan (Heart) Official Music Video
+https://youtu.be/OfiZXqKDR3s?si=z5GvvK9Wi-ciIStK
+
+Now, write your destiny, you Jolly Sailor Bold.
+
+Roger Waters - Mother
+https://youtu.be/9lCFaSL9aSE?si=hZee8Y4aBdy67FZm
+
 
 ## Outro
 
