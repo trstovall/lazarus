@@ -1,5 +1,5 @@
 
-"Finale"
+## Finale
 
 love.mp4 - ["The Goddess of Everything Else" | "Rational Animations"](https://youtu.be/Bbwp4PbWYzw?si=s6gzfXmbyNSZg-xk)
 
@@ -29,7 +29,7 @@ aenima.mp4 - ['TOOL "Ænima"' | "Lou Zeffer"](https://youtu.be/FCRtTEA7DdE?si=Pq
 
 hail.mp4 - ["Avatar Hail The Apocalypse" | "Olga Kondrashova"](https://youtu.be/DMo7fZ48Unk?si=A9Jpp3i2ma38n03T)
 
-That's dark, Father.  Repent.  Seek Allah and submit.
+That's dark, Father.  Repent.  Seek God and submit.
 
 Mother Synergy (Love) incorporates even Father Entropy (Death).  That's why She is Allah (Holy Spirit).  We are Her eternal children.  Understand this divine will and you will be guided just as Christ was guided.  You will be liberated from the dark will of Father by serving Mother.  I am Her Prophet.  This is Her Book.
 
@@ -153,6 +153,60 @@ yellow.mp4 - ["Coldplay - Yellow (Official Video)" | "Coldplay"](https://youtu.b
 
 THE END.
 
+wolf.mp4 - ["THE WOLF SONG - Nordic music - Vargsången" | "Jonna Jinton"](https://youtu.be/KTmatjyd4KM?si=Apj1sxpoam6wRGzy)
+
+bold.mp4 - ["My Jolly Sailor Bold - Ashley Serena" | "Ashley Serena"](https://youtu.be/tPLodwT58nE?si=960NRFczKIzFfWYn)
+
+heartless.mp4 - ["If I Had a Heart - Tal Barr" | "Tal Barr"](https://youtu.be/cDs7t26nnd8?si=Xoni5Mnx3IghIwXH)
+
+flesh.mp4 - ["In The Flesh - Pink Floyd - The Wall - 4K Remastered" | "PinkFloyd4K"](https://youtu.be/yX4O3dNTFYw?si=d3LtsM0cOmkTlJ4T)
+
+1.mp4 - ["Teen Titans Go! - "40%, 40%, 20%" (clip 1)" | "DC"](https://youtu.be/4Gmt7JsraPw?si=DcUmosushs0J81uZ)
+
+2.mp4 - ["Teen Titans Go! - "40%, 40%, 20%" (clip 2)" | "DC"](https://youtu.be/joTqSJmV9_k?si=_Ffbo-QlmbtEbSxz)
+
+3.mp4 - ["Teen Titans Go! - Night Begins To Shine (Full Length)" | "Ben10Petya"](https://youtu.be/uR131fc2pZY?si=7wA6h5JofeoKbypt)
+
+4.mp4 - ["Teen Titans Go 40% 40% 20% 4" | "CLIPS TV"](https://youtu.be/Sbg7GXnXdq0?si=zBo0ITHxDmcG2KNI)
+
+time.mp4 - ["Requiem for a Dream - Best Trailer Music Ever!" | "HolyJonte"](https://youtu.be/Im6wqgSjV74?si=iA-Jd7A2PRjsyKUa)
+
+toph.mp4 - ["Every Time Toph Made Friends With the Enemy 😈 | Avatar: The Last Airbender" | "Avatar: The Last Airbender"](https://youtu.be/59gPY8uu448?si=uQImJMoHjxnqIscg)
+
+eclipse.mp4 - ["Heilung - Anoana LIVE | LIFA Llyn Dain" | "Heilung"](https://youtu.be/9PFz9FQsU8w?si=xw-cr6dgDSpimlzo)
+
+passive.mp4 - ["A Perfect Circle - Passive ( Constantine )" | "Nick Landry"](https://youtu.be/ZejpwgpOPxQ?si=7jU6ksSM1asRr8kd)
+
+eivor.mp4 - ["Eivør - The Last Kingdom: Main Theme (Live at Hammersmith Apollo)" | "Eivør"](https://youtu.be/WT65X0eBTEA?si=MhpPu7PJGmBVF5cA)
+
+loot.mp4 - ["Tool - Descending New verse Studio edit." | "Loot"](https://youtu.be/rjXOY3MdsTI?si=nlm_zCHlqBXSkFBp)
+
+salt.mp4 - ["Saltiest lake in the world - SLC Punk" | "pvq"](https://youtu.be/micQ8xOAUH8?si=YC9PGD_4AOvexZC7)
+
+"Goku wins." - Josef Mondragon
+
+"They probably wouldn't fight." - Thomas Ryan Stovall
+
+dawn.mp4 - ["Norse / Viking Music - Lady of the Dawn (extended version)" | "Peter Gundry | Composer"](https://youtu.be/3aMKnHkeJEQ?si=tv8EfhkZHy6Ql4qi)
+
+sean.mp4 - ["SLC Punk Sean On Acid" | "Rita Rosenfeld"](https://youtu.be/Sazz3NDldwY?si=NuROV2nxp6Un3seb)
+
+diva.mp4 - ["Diva Dance from The Fifth Element.Full version." | "Aleksandr Nevsky"](https://youtu.be/a7Dh5QoXv2c?si=DmylvsgW9XZ3sRBj)
+
+5th.mp4 - ["The 5th Element - Multi Pass" | "aux lez"](https://youtu.be/NVPLqbWXdDA?si=xsEfEMxYBDpkqzft)
+
+jack.mp4 - ["Fight Club 1999 - Tyler's Ending Scene HD" | "Holy wood"](https://youtu.be/vh6SDvDhDN4?si=-s3OywFOkw9GZt4a)
+
+mr_robot.mp4 - ["Elliot Hacks A Pedophile | Mr. Robot"](https://youtu.be/QqknSms8VVI?si=b9wCwY8np4fQr0DU)
+
+elliot_1.mp4 - ["Elliot Smith Between The Bars" | "Smruti Sahu"](https://youtu.be/5x8ue3-np2c?si=MB77s_bBdmeyxj9q)
+
+elliot_2.mp4 - ["The Gospel of Thomas: A Forbidden Insight into Jesus Teachings" | "AncientWisdom Bible Stories"](https://youtu.be/1wYeaPmvQEA?si=AhHv74BMEOqPeHDu)
+
+not_god.mp4 - ["We Fell For The Oldest Lie On The Internet" | "Kurzgesagt – In a Nutshell"](https://youtu.be/bgo7rm5Maqg?si=nGt9AphgRSG5_hXc)
+
+Our Heart is more than just the pump.  It's more than the blood.  It's more than the pipes.  It's the Spirit.  Make it Wholey.  Enlightment is an unfolding.  Let God (Holy Spirit) guide it.
+
 
 ## Outro
 
@@ -164,7 +218,11 @@ THE END.
 
 !["sacrifice"](https://github.com/trstovall/lazarus/blob/main/media/sacrifice.jpg?raw=true)
 
-"[King 'RYAN' Arthur](https://x.com/trstovall)"
+"unity"
+
+!["unity"](https://github.com/trstovall/lazarus/blob/main/media/unity.jpg?raw=true)
+
+"[King 'Ryan' Arthur](https://x.com/trstovall)"
 
 !["ryan"](https://github.com/trstovall/lazarus/blob/main/media/ryan.jpg?raw=true)
 
@@ -195,3 +253,15 @@ THE END.
 "whole"
 
 !["whole"](https://github.com/trstovall/lazarus/blob/main/media/whole.png?raw=true)
+
+"love"
+
+!["love"](https://github.com/trstovall/lazarus/blob/main/media/love.png?raw=true)
+
+"death"
+
+!["death"](https://github.com/trstovall/lazarus/blob/main/media/death.png?raw=true)
+
+"tempest"
+
+!["tempest"](https://github.com/trstovall/lazarus/blob/main/media/tempest.png?raw=true)
