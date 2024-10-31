@@ -273,6 +273,9 @@ https://youtu.be/3YxaaGgTQYM?si=01Dem3LbetU0dJsB
 Roger Waters - Two Suns In The Sunset [Corrected Audio]
 https://youtu.be/4vu24954p4k?si=OZzxTLI9O6aw_9zf
 
+Wardruna - Voluspá (Official music video)
+https://youtu.be/8UPUPDo20nM?si=0Q1S_MNxCW5QZMXE
+
 
 ## Outro
 
