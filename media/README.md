@@ -545,7 +545,7 @@ https://youtu.be/c1Lkc3OqtDU?si=djhXP8nLolv3nBtN
 Fade to Black.  Thank you for your sacrifice.  I'll see you again.
 
 Opeth - Master's Apprentices (Live at Shepherd's Bush Empire, London)
-
+https://youtu.be/pQ9u9cz0Xag?si=tkKxlAj8oQn_bflH
 
 ## Outro
 
