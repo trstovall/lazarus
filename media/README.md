@@ -498,6 +498,41 @@ In this world and the next.
 
 Amen (truly).
 
+Scandinavian/Nordic music | Folk Viking music| Music for studying, working, relaxing, dreaming pt.1 | vera's music
+https://youtu.be/AkrM69fZhIU?si=ph2A33ACRmAMOA-w
+
+Brand X Music - The Old Gods - Fantasy X (2024)
+https://youtu.be/Fi-v-gEhhzk?si=ZyVs5vuUkldZhy2G
+
+Munknörr - Norðr (Full Album 2024) - Dark Folk - Norse Folk
+https://youtu.be/UvYQWqSnEMU?si=BCS9drTvy6pfgNuQ
+
+THE DAY WE CHOOSE TO DIE | Epic Dramatic Strings - Powerful Atmospheric Orchestral Music Mix | Pandora Journey (Pan)
+https://youtu.be/RwJscjiB0Sc?si=PYagUVnkdAVKWPNI
+
+Tommy | Elton John Singing Pinball Wizard
+https://youtu.be/jL53EUbHazo?si=6htkPsduCRrAAdO7
+
+Tool - Third Eye - (Salival video) | Inti Sanchez
+https://youtu.be/A3X3Im2YoL8?si=jCLvLXL-LM0wYInl
+
+FAUN - BLOT (Official Video) | fauntube
+https://youtu.be/vaT0vAVBCMo?si=Ishayx67kPvkjI1O
+
+Avatar Hail The Apocalypse | Olga Kondrashova
+https://youtu.be/DMo7fZ48Unk?si=28HlSx4rFkWFjID6
+
+NINGEN ISU / Heartless Scat (LIVE) 〔人間椅子/無情のスキャット・ライブ映像〕
+https://youtu.be/GmaTRxAicdc?si=yE_HaKqJgZ-1xstP
+
+Kamelot -- This is Halloween | The Adventure Formula
+https://youtu.be/_kgcVQKvjtk?si=8YYwTLcmvh7fcGST
+
+FAUN - Federkleid (Offizielles Video) | Universal Music Deutschland
+https://youtu.be/zOvsyamoEDg?si=dLVn-BP6DWcr1zlv
+
+Wheat.  You will become wheat.
+
 
 ## Outro
 
