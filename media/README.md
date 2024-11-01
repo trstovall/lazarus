@@ -492,7 +492,7 @@ Give us life.
 Forgive us,
 And forgive them.
 Lead us away from sin.
-Deliver us.
+Deliver us from conquest.
 Keep Your House,
 In this world and the next.
 
