@@ -547,6 +547,12 @@ Fade to Black.  Thank you for your sacrifice.  I'll see you again.
 Opeth - Master's Apprentices (Live at Shepherd's Bush Empire, London)
 https://youtu.be/pQ9u9cz0Xag?si=tkKxlAj8oQn_bflH
 
+SEMATARY - BLOODY ANGEL [OFFICIAL VIDEO]
+https://youtu.be/fnXFUa4_gw8?si=hEWimA2lmGEg0BOP
+
+Death cults.  Free yourself.  Find Love.
+
+
 ## Outro
 
 "synergy"
@@ -624,3 +630,8 @@ https://youtu.be/pQ9u9cz0Xag?si=tkKxlAj8oQn_bflH
 "BEAST"
 
 !["beast"](https://github.com/trstovall/lazarus/blob/main/media/beast.png?raw=true)
+
+"cults"
+
+!["cults"](https://github.com/trstovall/lazarus/blob/main/media/cults.png?raw=true)
+
