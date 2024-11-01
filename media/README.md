@@ -467,8 +467,36 @@ Don't be ashamed, you Lovely Soul, you.
 
 Father, unleash the Beast.
 
-The Big Push Lockdown Live 1 - 16th April 2020
+The Big Push Lockdown Live 1 - 16th April 2020 | Pete Eley
 https://youtu.be/QE7ZVZUIdWY?si=Mn9fsXs6cwb7U3lF
+
+The Big Push Lockdown Live 2 - 17th April 2020 | Pete Eley
+https://youtu.be/Z2V1jtyG3H4?si=Y5uETQWP-fyVB3oW
+
+Rammstein - Deutschland (Official Video)
+https://youtu.be/NeQM1c-XCDc?si=RTh3--LuBM71OMDu
+
+Rammstein - Adieu (Official Video)
+https://youtu.be/skl6N3zGv-s?si=u6STKbWkoK05txJX
+
+twenty one pilots: Stressed Out [OFFICIAL VIDEO] | Fueled By Ramen (Rammstein)
+https://youtu.be/pXRviuL6vMY?si=peNQwHBJLMUZV3j8
+
+Roger Waters - Mother
+https://youtu.be/9lCFaSL9aSE?si=VMlI3ShXAvGIF4bm
+
+Our Loving Holy Mother,
+We love you.
+Give us time.
+Give us life.
+Forgive us,
+And forgive them.
+Lead us away from sin.
+Deliver us.
+Keep Your House,
+In this world and the next.
+
+Amen (truly).
 
 
 ## Outro
