@@ -533,6 +533,15 @@ https://youtu.be/zOvsyamoEDg?si=dLVn-BP6DWcr1zlv
 
 Wheat.  You will become wheat.
 
+Opeth - Blackwater Park (Audio)
+https://youtu.be/j4xCb_OU_lM?si=qZ_r9-iEaGPmh6rB
+
+Opeth - Black Rose Immortal (REMASTERED) | Lapse Of Judgment
+https://youtu.be/dEkemdBThDk?si=pray183T7XrTalAK
+
+Opeth - Deliverance (Live at Shepherd's Bush Empire, London)
+https://youtu.be/c1Lkc3OqtDU?si=djhXP8nLolv3nBtN
+
 
 ## Outro
 
