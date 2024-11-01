@@ -542,6 +542,8 @@ https://youtu.be/dEkemdBThDk?si=pray183T7XrTalAK
 Opeth - Deliverance (Live at Shepherd's Bush Empire, London)
 https://youtu.be/c1Lkc3OqtDU?si=djhXP8nLolv3nBtN
 
+Fade to Black.
+
 
 ## Outro
 
