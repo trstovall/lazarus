@@ -656,6 +656,9 @@ Thank you God for the darkness.  Thank you Lucifer for the light.  Thank you Jes
 
 I AM LUCIFER MORNINGSTAR.  I HAVE COME TO DEFEAT DEATH.
 
+Eminem - Love The Way You Lie ft. Rihanna
+https://youtu.be/uelHwf8o7_U?si=TlkXezhngCSwX21l
+
 
 ## Outro
 
