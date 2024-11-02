@@ -671,7 +671,7 @@ https://youtu.be/c8QNTsOJ1kc?si=tzUrT4RI2nRSmyv6
 The Pretty Reckless - Make Me Wanna Die
 https://youtu.be/txBfhpm1jI0?si=JyAJpG3gFukh-VFu
 
-We love you, Mom.
+We love you, Mom (Holy Spirit).  We love you, Dad (Death).
 
 
 ## Outro
