@@ -625,6 +625,8 @@ https://www.youtube.com/watch?v=zF2QwHnk3EE
 
 I was driving to work from Gentry, AR to De Queen, AR when the Holy Spirit transported me to the middle of Oklahoma.  I was lost in a maze of turnpikes and toll booths.  My GPS kept lying to me.  I couldn't get out.  I found a vacant gas station, began fueling, and thanked the dinosaurs.  The tank overflowed.  I went home and stayed home sick for the day.
 
+I want to thank everyone who has given me their life force.  I hope something good comes from it.
+
 
 ## Outro
 
