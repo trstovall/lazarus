@@ -629,6 +629,8 @@ I want to thank everyone who has given me their life force.  I hope something go
 
 Alan Watts should thank the grain and the yeast for the alcohol.
 
+Thank you, Alan.
+
 
 ## Outro
 
