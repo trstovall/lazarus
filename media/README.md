@@ -612,6 +612,13 @@ https://youtu.be/QTfz-e4wXyk?si=HaiuVqBxQZV-5oSw
 !yt billie eilish hot ones
 https://www.youtube.com/watch?v=YDr4ITrp7YI&t=754s
 
+!yt natalie portman hot ones
+https://www.youtube.com/watch?v=zF2QwHnk3EE
+
+!yt shaq hot ones
+
+!["shaq"](https://github.com/trstovall/lazarus/blob/main/media/shaq.png?raw=true)
+
 
 ## Outro
 
