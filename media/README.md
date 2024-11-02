@@ -566,6 +566,8 @@ https://youtu.be/zrz8NuALuj8?si=TP_IT9EmLDfJfii2
 
 https://youtu.be/53N99Nim6WE?si=PwNAHpmfgO3wEVUq
 
+https://youtube.com/shorts/gDbltV8z7dQ?si=wn-s7jJYk0Tt9LEh
+
 
 ## Outro
 
