@@ -687,6 +687,8 @@ And the dogs get the bones.
 
 Thank you, Waters.
 
+Justice is not about judging or forgiving crimes.  It is about making things right.
+
 
 ## Outro
 
