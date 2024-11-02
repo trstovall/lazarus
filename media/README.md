@@ -603,6 +603,9 @@ https://en.wikipedia.org/wiki/Balrog
 
 A man and his muse are powerful things.  May the holy spirit guide them.
 
+Rammstein - Keine Lust (Official Video)
+https://www.youtube.com/watch?v=1M4ADcMn3dA
+
 
 ## Outro
 
