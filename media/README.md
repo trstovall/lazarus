@@ -621,6 +621,7 @@ https://www.youtube.com/watch?v=zF2QwHnk3EE
 
 "First, I want to thank the chickens.  We are consuming their life force, and their parents were mighty lizards.  You do not want to be in Hell with them."
 
+"Next, I would like to thank the Holy Spirit for giving them life."
 
 ## Outro
 
