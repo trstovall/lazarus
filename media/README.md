@@ -673,6 +673,18 @@ https://youtu.be/txBfhpm1jI0?si=JyAJpG3gFukh-VFu
 
 We love you, Mom (Holy Spirit).  We love you, Dad (Death).
 
+We eat pork ribs to remind us of the police who help keep peace in chaotic times.
+
+We eat pickles to remind us of the cucumbers the pigs eat.
+
+We eat cookies and cream ice cream to remind us of Heaven.
+
+We eat sour patch kids to remind us of everything else.
+
+And the dogs get the bones.
+
+Thank you, Waters.
+
 
 ## Outro
 
