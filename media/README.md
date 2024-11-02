@@ -568,6 +568,10 @@ https://youtu.be/53N99Nim6WE?si=PwNAHpmfgO3wEVUq
 
 https://youtube.com/shorts/gDbltV8z7dQ?si=wn-s7jJYk0Tt9LEh
 
+If you can't amuse a stoic, then you aren't enlightened.
+
+https://www.youtube.com/watch?v=8uxYrF-AF6c
+
 
 ## Outro
 
