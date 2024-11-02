@@ -619,6 +619,8 @@ https://www.youtube.com/watch?v=zF2QwHnk3EE
 
 !["shaq"](https://github.com/trstovall/lazarus/blob/main/media/shaq.png?raw=true)
 
+"First, I want to thank the chickens.  We are consuming their life force, and their parents were mighty lizards.  You do not want to be in Hell with them."
+
 
 ## Outro
 
