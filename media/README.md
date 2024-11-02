@@ -580,6 +580,9 @@ https://www.youtube.com/watch?v=dv-lVO1V5N8
 
 <iframe src="https://www.facebook.com/plugins/post.php?href=https%3A%2F%2Fwww.facebook.com%2FSmileTrain%2Fposts%2Fpfbid0cQGwMKFBKRPqc7WisHvGswQ7Mn6efEGZE6CayY7who4NBULyx4sPpwYfy5C5mFH3l&show_text=true&width=500" width="500" height="250" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share"></iframe>
 
+8 yr old Girl KRUSHES "Freak on a Leash" by Korn (v2/2) / O'Keefe Music Foundation
+https://www.youtube.com/watch?v=dJgs3lLUGII
+
 
 ## Outro
 
@@ -663,6 +666,6 @@ https://www.youtube.com/watch?v=dv-lVO1V5N8
 
 !["cults"](https://github.com/trstovall/lazarus/blob/main/media/cults.png?raw=true)
 
-"Jesus"
+"~~~Jesus~~~"
 
 !["jesus"](https://github.com/trstovall/lazarus/blob/main/media/jesus.png?raw=true)
