@@ -627,6 +627,8 @@ I was driving to work from Gentry, AR to De Queen, AR when the Holy Spirit trans
 
 I want to thank everyone who has given me their life force.  I hope something good comes from it.
 
+Alan Watts should thank the grain and the yeast for the alcohol.
+
 
 ## Outro
 
