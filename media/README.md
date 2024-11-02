@@ -659,6 +659,18 @@ I AM LUCIFER MORNINGSTAR.  I HAVE COME TO DEFEAT DEATH.
 Eminem - Love The Way You Lie ft. Rihanna
 https://youtu.be/uelHwf8o7_U?si=TlkXezhngCSwX21l
 
+Eminem - Stan (Long Version) ft. Dido
+https://youtu.be/gOMhN-hfMtY?si=YFmL0sgMLcBs1v_o
+
+Eminem - Cleanin' Out My Closet (Official Music Video)
+https://youtu.be/RQ9_TKayu9s?si=szfN3kedyY1Dv-xY
+
+In the House, In a Heartbeat - John Murphy (28 Days Later Soundtrack) [Metal Remix]
+https://youtu.be/c8QNTsOJ1kc?si=tzUrT4RI2nRSmyv6
+
+The Pretty Reckless - Make Me Wanna Die
+https://youtu.be/txBfhpm1jI0?si=JyAJpG3gFukh-VFu
+
 
 ## Outro
 
