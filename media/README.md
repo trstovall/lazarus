@@ -550,7 +550,17 @@ https://youtu.be/pQ9u9cz0Xag?si=tkKxlAj8oQn_bflH
 SEMATARY - BLOODY ANGEL [OFFICIAL VIDEO]
 https://youtu.be/fnXFUa4_gw8?si=hEWimA2lmGEg0BOP
 
-Death cults.  Free yourself.  Find Love.
+Cults are.  Free yourself.  Find Love.
+
+Lucifer is Logos in Greek.  Logos is rational.  Love is irrational.  There are far more irrational numbers than rational numbers.  That is why the Holy Spirit defeats Lucifer.
+
+!yt keep talking
+
+https://youtu.be/wbOTkDn49qI?si=G7DlgJTi774zY1CC
+
+!yt marooned
+
+https://youtu.be/zrz8NuALuj8?si=TP_IT9EmLDfJfii2
 
 
 ## Outro
