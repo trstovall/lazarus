@@ -695,3 +695,11 @@ https://youtu.be/QTfz-e4wXyk?si=HaiuVqBxQZV-5oSw
 "~~~Jesus~~~"
 
 !["jesus"](https://github.com/trstovall/lazarus/blob/main/media/jesus.png?raw=true)
+
+"beast"
+
+!["beast"](https://github.com/trstovall/lazarus/blob/main/media/beast.jpg?raw=true)
+
+"warrior"
+
+!["warrior"](https://github.com/trstovall/lazarus/blob/main/media/warrior.png?raw=true)
