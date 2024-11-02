@@ -790,3 +790,7 @@ https://www.youtube.com/watch?v=cpbbuaIA3Ds
 "witness"
 
 !["witness"](https://github.com/trstovall/lazarus/blob/main/media/witness.png?raw=true)
+
+"heaven"
+
+!["heaven"](https://github.com/trstovall/lazarus/blob/main/media/heaven.png?raw=true)
