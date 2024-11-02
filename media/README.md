@@ -601,6 +601,8 @@ https://www.youtube.com/watch?v=StZcUAPRRac
 !w balrog
 https://en.wikipedia.org/wiki/Balrog
 
+A man and his muse are powerful things.  May the holy spirit guide them.
+
 
 ## Outro
 
