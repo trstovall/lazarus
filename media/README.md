@@ -562,6 +562,10 @@ https://youtu.be/wbOTkDn49qI?si=G7DlgJTi774zY1CC
 
 https://youtu.be/zrz8NuALuj8?si=TP_IT9EmLDfJfii2
 
+!yt echoes
+
+https://youtu.be/53N99Nim6WE?si=PwNAHpmfgO3wEVUq
+
 
 ## Outro
 
