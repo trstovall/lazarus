@@ -609,6 +609,9 @@ https://www.youtube.com/watch?v=1M4ADcMn3dA
 Rammstein - Ich Tu Dir Weh / Ich Will / Engel (LIVE at Hurricane 2016) | [Proshot] HD 50fps
 https://youtu.be/QTfz-e4wXyk?si=HaiuVqBxQZV-5oSw
 
+!yt billie eilish hot ones
+https://www.youtube.com/watch?v=YDr4ITrp7YI&t=754s
+
 
 ## Outro
 
@@ -703,3 +706,7 @@ https://youtu.be/QTfz-e4wXyk?si=HaiuVqBxQZV-5oSw
 "warrior"
 
 !["warrior"](https://github.com/trstovall/lazarus/blob/main/media/warrior.png?raw=true)
+
+"witness"
+
+!["witness"](https://github.com/trstovall/lazarus/blob/main/media/witness.png?raw=true)
