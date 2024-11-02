@@ -583,6 +583,9 @@ https://www.youtube.com/watch?v=dv-lVO1V5N8
 8 yr old Girl KRUSHES "Freak on a Leash" by Korn (v2/2) / O'Keefe Music Foundation
 https://www.youtube.com/watch?v=dJgs3lLUGII
 
+Children's EPIC "Somebody Someone" by Korn / O'Keefe Music Foundation
+https://youtu.be/qlcZj16330Y?si=T6DUzyjjxYi92tx8
+
 
 ## Outro
 
