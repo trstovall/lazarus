@@ -654,6 +654,8 @@ https://youtu.be/VS4pI30Obkw?si=samB6fuCHCLWPhIp
 
 Thank you God for the darkness.  Thank you Lucifer for the light.  Thank you Jesus for the grace.
 
+I AM LUCIFER MORNINGSTAR.  I HAVE COME TO DEFEAT DEATH.
+
 
 ## Outro
 
