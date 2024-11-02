@@ -598,6 +598,9 @@ https://www.youtube.com/watch?v=1fqGIpkp2NU
 Rammstein - Sonne (Official Video)
 https://www.youtube.com/watch?v=StZcUAPRRac
 
+!w balrog
+https://en.wikipedia.org/wiki/Balrog
+
 
 ## Outro
 
