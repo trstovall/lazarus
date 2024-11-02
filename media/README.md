@@ -572,6 +572,8 @@ If you can't amuse a stoic, then you aren't enlightened.
 
 https://www.youtube.com/watch?v=8uxYrF-AF6c
 
+https://www.youtube.com/watch?v=IQBovXEDTHU
+
 
 ## Outro
 
