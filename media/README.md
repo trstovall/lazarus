@@ -689,6 +689,9 @@ Thank you, Waters.
 
 Justice is not about judging or forgiving crimes.  It is about making things right.
 
+!yt money
+https://www.youtube.com/watch?v=cpbbuaIA3Ds
+
 
 ## Outro
 
