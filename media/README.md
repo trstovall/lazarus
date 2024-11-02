@@ -635,6 +635,23 @@ Thank you, water(s).
 
 Thank you cows for my milk addiction.
 
+Thank you, Jesus.  Thank you, Lord.
+
+"lyrics i was driving home early sunday morning through bakersfield"
+https://www.azlyrics.com/lyrics/rollingstones/farawayeyes.html
+
+!yt far away eyes
+https://youtu.be/VyK1bZZ7E-s?si=JjXIKsJi9TC7HOzb
+
+!yt ocean eyes
+https://www.youtube.com/watch?v=viimfQi_pUw
+
+!yt far over the misty mountains cold
+https://www.youtube.com/watch?v=Erkv1-_xR7U
+
+Far Over The Misty Mountains Cold (Ultimate Edition) - The Hobbit - Clamavi De Profundis
+https://youtu.be/VS4pI30Obkw?si=samB6fuCHCLWPhIp
+
 
 ## Outro
 
