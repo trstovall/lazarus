@@ -586,6 +586,12 @@ https://www.youtube.com/watch?v=dJgs3lLUGII
 Children's EPIC "Somebody Someone" by Korn / O'Keefe Music Foundation
 https://youtu.be/qlcZj16330Y?si=T6DUzyjjxYi92tx8
 
+!w milk
+https://en.wikipedia.org/wiki/Milk
+
+!w mlk
+https://en.wikipedia.org/wiki/Martin_Luther_King_Jr.
+
 
 ## Outro
 
