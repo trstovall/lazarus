@@ -592,6 +592,12 @@ https://en.wikipedia.org/wiki/Milk
 !w mlk
 https://en.wikipedia.org/wiki/Martin_Luther_King_Jr.
 
+BLACK SABBATH - Master of Reality (Full Album)
+https://www.youtube.com/watch?v=1fqGIpkp2NU
+
+Rammstein - Sonne (Official Video)
+https://www.youtube.com/watch?v=StZcUAPRRac
+
 
 ## Outro
 
