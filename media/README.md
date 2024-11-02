@@ -679,6 +679,8 @@ We eat pickles to remind us of the cucumbers the pigs eat.
 
 We eat cookies and cream ice cream to remind us of Heaven.
 
+We eat potatoes to remind us of the Earth that sustains us.
+
 We eat sour patch kids to remind us of everything else.
 
 And the dogs get the bones.
