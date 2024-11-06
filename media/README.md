@@ -891,6 +891,37 @@ https://www.youtube.com/watch?v=MgpaULjZOl8
 
 Amen.  (Truly.)
 
+We eat popcorn to honor the children of sacrifice.
+
+We eat rice to honor the dead.
+
+We drink sweet tea to honor the Buddha.
+
+We drink coffee with cream to help us sleep.
+
+Now for the show.  Enjoy.
+
+Billie Eilish - Bellyache (Official Music Video)
+https://www.youtube.com/watch?v=gBRi6aZJGj4
+
+Needs more salt.
+
+!w love and death
+https://en.wikipedia.org/wiki/Love_and_Death
+
+!w the greatest showman
+https://en.wikipedia.org/wiki/The_Greatest_Showman
+
+!w life is beautiful
+https://en.wikipedia.org/wiki/Life_Is_Beautiful
+
+!w futurama
+https://en.wikipedia.org/wiki/Futurama
+
+Oops.  Too salty.
+
+4 + 7 = 47.
+
 
 ## Outro
 
