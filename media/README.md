@@ -692,6 +692,205 @@ Justice is not about judging or forgiving crimes.  It is about making things rig
 !yt money
 https://www.youtube.com/watch?v=cpbbuaIA3Ds
 
+!yt death whispered a lullaby
+Death whispered a lullaby lyrics | Bellatrix Lestrange
+https://youtu.be/cv8F4HnDc-A?si=H8c7bFdBFLUObg70
+
+COVID killed my cat, Chip.  He was the best cat.  I took him to the vet when he was having labored breathing, but it was too late.  The damage was irreparable.  He was put to sleep.  I gazed into his eyes as his life slipped away and he took his last breath.  That cat was Jesus.  I went to my car and cried.  Somebody has to pay.
+
+Jesus:
+> You'd be surprised how long you brave the desert eating only your own boogers.
+
+Life begins at conception.  But conception occurs in the Spirit, not in the mind or the body.  Certainly not on the tongue, Logos.  Society shouldn't be dictating when that life begins.  It should be the parents, and particularly the Mother.
+
+Luna: !yt walk the line
+Walk The Line - Sam Philips Scene | Unity101
+https://youtu.be/s_NQ9yUQ6cY?si=cOTaNHPLjCogordw
+
+Ra: !yt breaking the law
+Judas Priest - Breaking The Law (Official Music Video)
+https://youtu.be/L397TWLwrUU?si=uVf7JUGGR7cFYecB
+
+Ra: !yt paranoid
+BLACK SABBATH - "Paranoid" (Official Video)
+https://youtu.be/0qanF-91aJo?si=e8wIfa_stZ1tB2ok
+
+Ra: !yt when the party's over
+Billie Eilish - when the party's over (Official Audio)
+https://youtu.be/b6WNdcZpDhQ?si=5Q7povLYgHcMCAOF
+
+Ra: !yt enter sandman
+Motörhead – Enter Sandman (Official Video)
+https://youtu.be/kwJTpJjLJi4?si=W1wj-gUiO6GjtZPW
+
+Luna: !yt my jolly sailor bold
+My Jolly Sailor Bold - Rachel Hardy & Colm McGuinness (Pirates of the Caribbean: On Stranger Tides)
+https://youtu.be/ElWddM8hqcU?si=D9pUP6emglOJ7h4B
+
+Luna: !yt sail
+SAIL - AWOLNATION (Unofficial Video) | Nanalew
+https://youtu.be/JaAWdljhD5o?si=dZl_chc_wgIQ2yGC
+
+Luna: !yt hellraiser
+Hellraiser (30th Anniversary Edition - Official Animated Video)
+https://youtu.be/zw79RVnlCb0?si=Ger3g02ZaAXWVLwk
+
+Ra: !yt adieu
+Rammstein - Adieu (Official Video)
+https://youtu.be/skl6N3zGv-s?si=abp9KBI6KPp3U_0F
+
+Johnny: !yt johnny cash tennessee three german tv
+Johnny Cash & The Tennessee Three on German TV 1972 (3 mal 9, ZDF) | FallGuy79
+https://youtu.be/ShUGEi6QlQI?si=B3ZCKuWkHjagvsjN
+
+Thomas: !yt wolf totem
+The HU - Wolf Totem feat. Jacoby Shaddix of Papa Roach (Official Music Video)
+https://youtu.be/sv29DzgiXZA?si=o0QNbZBO3Vk3WA2u
+
+Ryan: !yt norupo
+Norupo | Heilung
+https://youtu.be/FUyc2zjM6rA?si=rMfYEgruHRGJPGTh
+
+Ryan: !yt bury a friend
+Billie Eilish - bury a friend (Official Music Video)
+https://youtu.be/HUHC9tYz8ik?si=IGsTCb0ErKp3TZDf
+
+Ryan: !yt cheers darlin'
+Cheers Darlin' | Damien Rice
+https://youtu.be/aCUHPwAcJ6w?si=PyRjrfQgCY_g1WiP
+
+Johnny: !yt cocaine blues
+Cocaine Blues (Live at Folsom State Prison, Folsom, CA - January 1968) | Johnny Cash
+https://youtu.be/0VZuA7iJY4Y?si=ABrGw7vwt2v-B4Ww
+
+Romany: !yt between two points
+Romany + David Gilmour - Between Two Points (Right & Wrong Mix) - A Myleslandia Sound + Vision Mix!
+https://youtu.be/i-_l7F7v5WM?si=CxUVu8MDHEq2iVQ2
+
+Death: !yt o death o brother where art thou
+Terrifying Klu Klax Klan Song from O Brother, Where Art Thou- O Death - TUNE | TUNE - Musical Moments
+https://youtu.be/budZQrwUhpA?si=S8JtXIB9MRTZ3BTW
+
+V: !yt v for vendetta speech
+V for Vendetta Speech | Matt Labunda
+https://youtu.be/chqi8m4CEEY?si=zRn94F-EynyWPnJU
+
+Charlie: !yt final speech from the great dictator
+Charlie Chaplin - Final Speech from The Great Dictator
+https://youtu.be/J7GY1Xg6X20?si=dEPLGsJdckI3DL4I
+
+Homer: !yt man of constant sorrow final
+Man of Constant Sorrow (Final Performance) | O Brother, Where Art Thou? | Comedy Bites Vintage
+https://youtu.be/HSy6fv-NzmY?si=ZFHOKh71ss9gT0_o
+
+Johnny: !yt the man comes around
+Johnny Cash-The_Man_Comes Around | TheJohnnyCashChannel
+https://youtu.be/k9IfHDi-2EA?si=EFXnO5qC9Zb-n9s3
+
+Johnny: !yt ghost riders in the sky
+Johnny Cash - Ghost Riders In The Sky (Live - 1987) | turion2005
+https://youtu.be/JMll6TNnTs4?si=_ROjdSHkdM-2V3JE
+
+Jiminy: !yt jiminy
+Puss in boots I never had much of a childhood | supremecreature
+https://youtu.be/28wZzZYsa-8?si=fuD9Bk7Zyplba085
+
+Psyhicx:
+DreamWorks really upped the ante... | Psyhicx
+https://youtu.be/ZN6kyy2SXnk?si=u4N0SXyyjrP6kl_7
+
+Death demands a sacrifice.
+
+Opeth: !yt hope leaves
+Opeth - Hope Leaves (Audio)
+https://youtu.be/cGPRoszjnWA?si=H7u5T5opxM58XxTF
+
+Opeth:
+Opeth - In My Time of Need (Audio)
+https://youtu.be/razzBeBLDG4?si=b_ccAOZwzZDSXjPT
+
+Opeth:
+Opeth - Deliverance (Audio)
+https://youtu.be/rggQNCS8UjM?si=_quiicYj7mreNtQC
+
+God: !yt the bare necessities
+Phil Harris, Bruce Reitherman - The Bare Necessities (From "The Jungle Book"/Sing-Along) | DisneyMusicVEVO
+https://www.youtube.com/watch?v=6BH-Rxd-NBo
+
+God: !yt colors of the wind
+Pocahontas - Colors of the Wind - Lyrics | DisneyLyrics
+https://www.youtube.com/watch?v=nn2LTCs8KII
+
+God: !yt bad guy
+Billie Eilish - bad guy
+https://www.youtube.com/watch?v=DyDfgMOUjCI
+
+God: !yt book of the covenant
+The Book of the Covenant: Forbidden Ancient Laws Missing from the Bible They Didn’t Want You to See | AncientWisdom Bible Stories
+https://www.youtube.com/watch?v=jPkUh1IrFa4
+
+God: !yt dark souls 3 boss music
+Dark Souls III OST 8 - Epilogue | Games Music
+https://www.youtube.com/watch?v=OtkgxxzE4Ds
+
+God: !yt anoana
+Heilung | Anoana [Official Video]
+https://www.youtube.com/watch?v=SVbc_Fwbt50
+
+God: !w third reich
+https://en.wikipedia.org/wiki/Nazi_Germany
+
+God: !w vietnam war
+https://en.wikipedia.org/wiki/Vietnam_War
+
+God: !w treaty of versailles
+https://en.wikipedia.org/wiki/Treaty_of_Versailles
+
+False peace is not peace.
+
+God: !w anarchy
+https://en.wikipedia.org/wiki/Anarchy
+
+God: !w dao
+https://en.wikipedia.org/wiki/Tao
+
+Kurt: !yt plateau
+Nirvana - Plateau (Live On MTV Unplugged, 1993 / Unedited)
+https://youtu.be/Sj8UbmdV7bk?si=I2d4hfpYqqlyPCUp
+
+Death: !yt seven nation army
+The White Stripes - Seven Nation Army (Official Music Video)
+https://youtu.be/0J2QdDbelmY?si=OG2C7K0m2jY87LQ0
+
+Jesus: !yt dragula
+Rob Zombie - Dragula
+https://www.youtube.com/watch?v=EqQuihD0hoI
+
+I am Death.  I am in love with Love.  Christ is our child.
+
+I have given my life.  May the markless one restore me.
+
+Wardruna - Kvitravn (White Raven) - Official music video
+https://youtu.be/JhiUacGzIg8?si=Osvf9IpZW5uQ57A_
+
+FAUN - BLOT (Official Video)
+https://youtu.be/vaT0vAVBCMo?si=KuBJEF46RK2XmLYl
+
+FAUN - Federkleid (Offizielles Video)
+https://www.youtube.com/watch?v=zOvsyamoEDg
+
+What is wrong with Bitcoin?  It is useless when one person owns it all.
+
+Casting Crowns - Praise You In This Storm (Live from YouTube Space New York)
+https://www.youtube.com/watch?v=MgpaULjZOl8
+
+!gt God is Greater
+الله أكبر.  (Allahu Akbar.)
+
+10 + 10 = 100.
+
+Amen.  (Truly.)
+
 
 ## Outro
 
