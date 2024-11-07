@@ -972,7 +972,7 @@ https://youtu.be/8JPtxtSK-Cs?si=1HajnfgB8j-W3PmP
 I Made A Rotary Vane Engine Prototype | driving 4 answers
 https://youtu.be/sTHSFncPUCQ?si=BRkSxgiq1AToNcvz
 
-The Holy Spirit has exiled me from Israel for murder.  My father-in-law was a chief of police.  He posted Blue Lives Matter propaganda to Facebook, and I unjustly characterized the police.  He didn't respond.  Days later, fire from Heaven knocked out telecommunications and ignited an electrical fire.  The house was a bit of a shanty so the blaze spread quickly.  The door was bolted.  The neighbors couldn't help.  He was raptured.
+The Holy Spirit has exiled me from Israel for murder.  My father-in-law, Bobby Hale, was a chief of police.  He posted Blue Lives Matter propaganda to Facebook, and I unjustly characterized the police.  He didn't respond.  Days later, fire from Heaven knocked out telecommunications and ignited an electrical fire.  The house was a bit of a shanty so the blaze spread quickly.  The door was bolted.  The neighbors couldn't help.  He was raptured.
 
 I sent myself to jail where I humbled myself before him.  There I saw him in Heaven wearing a crown and smiling peacefully.  Yet, there is still damage there.  There is still trauma.
 
