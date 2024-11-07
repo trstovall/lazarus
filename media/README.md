@@ -982,6 +982,9 @@ It's all yellow.
 
 o.
 
+Rick and Morty - Hurt | ClipToons
+https://youtu.be/UZaigFN0TSE?si=7o2x2WwJYvG7XSLG
+
 
 ## Outro
 
