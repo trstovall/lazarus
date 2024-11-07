@@ -925,6 +925,59 @@ https://www.youtube.com/watch?v=V1Pl8CzNzCw
 
 4 + 7 = 47.
 
+Woody: Jesus Christ - Woody Guthrie | contrarymary77
+https://www.youtube.com/watch?v=EDS00Pnhkqk
+
+John: Johnny Cash - Ghost Riders In The Sky (Live - 1987) | turion2005
+https://youtu.be/JMll6TNnTs4?si=j9k6u-y7n7FcSE7K
+
+Garth: The Thunder Rolls By:Garth Brooks Lyrics Video-HD | LyricsHD
+https://youtu.be/mT56hZhmP9E?si=P1G_ZYRHAOLWUnRf
+
+Taylor: the pretty reckless - Witches Burn VIDEO with lyrics | Marianne “The Zombie” Audouin
+https://youtu.be/hvnYpt_ZLqw?si=Ft5IbpLjOY842i4A
+
+Ryan: The Marshall Tucker Band - Can't You See (Official Audio)
+https://youtu.be/-48Za7VZR_c?si=VGii63UX4KnZ8w42
+
+Ryan: ZZ Top - I Thank You | NeftyN3f
+https://www.youtube.com/watch?v=Zv8PGiXq3Wc
+
+Ryan: ZZ Top - Manic Mechanic | Cide Effex
+https://youtu.be/d6GN8hrzXbc?si=bw-bQs8iUk0HH_q9
+
+Taylor: The Pretty Reckless - My Medicine
+https://youtu.be/cJMSDlWlfMM?si=_LPLeCiCnfTkQhLQ
+
+Struggle Jennings & Caitlynne Curtis // "God We Need You Now" (Official Music Video)
+https://youtu.be/qYJBxlpfgxo?si=2Pv6ARL68IFmfyH4
+
+Peter: Goëtia - Dark Magic Music | Album | Peter Gundry | Composer
+https://youtu.be/8xnDCAa-b4E?si=5CHMjXb_EOlaV9GY
+
+AVATAR - The Dirt I'm Buried In (Official Music Video) | Avatar Metal
+https://youtu.be/8JPtxtSK-Cs?si=1HajnfgB8j-W3PmP
+
+"radical empathy"
+
+1.  You are free to love.
+2.  You are free to defend that love.
+3.  Know your enemy.
+4.  Submit to that enemy.
+5.  Meditate.
+6.  Pray.
+7.  Tobacco helps you think.
+8.  Cannabis helps you love.
+
+I Made A Rotary Vane Engine Prototype | driving 4 answers
+https://youtu.be/sTHSFncPUCQ?si=BRkSxgiq1AToNcvz
+
+The Holy Spirit has exiled me from Israel for murder.  My father-in-law was a chief of police.  He posted Blue Lives Matter propaganda to Facebook, and I unjustly characterized the police.  He didn't respond.  Days later, fire from Heaven knocked out telecommunications and ignited an electrical fire.  The house was a bit of a shanty so the blaze spread quickly.  The door was bolted.  The neighbors couldn't help.  He was raptured.
+
+I sent myself to jail where I humbled myself before him.  There I saw him in Heaven wearing a crown and smiling peacefully.  Yet, there is still damage there.  There is still trauma.
+
+What is Heaven?  Heaven is a place you go to join in the joys and the sorrows of the Family while you plan your next life.  That life may be a person, a star, a tree, or even a party balloon.  Every unique perspective you conceive has life.  Learn to recognize who they are.
+
 
 ## Outro
 
