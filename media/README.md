@@ -988,6 +988,11 @@ https://youtu.be/UZaigFN0TSE?si=7o2x2WwJYvG7XSLG
 Avatar - The King Welcomes You To Avatar Country | Avatar Metal
 https://youtu.be/zfqdCXz8Yww?si=7DC5km3sbPSyn_Di
 
+Avatar - A Secret Door (Official Music Video) | Avatar Metal
+https://youtu.be/mKqVB_e8u5w?si=4xd7qypTDHS6Xcme
+
+Balance your pride with the Holy Spirit.
+
 
 ## Outro
 
