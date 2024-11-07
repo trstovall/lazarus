@@ -978,6 +978,10 @@ I sent myself to jail where I humbled myself before him.  There I saw him in Hea
 
 What is Heaven?  Heaven is a place you go to join in the joys and the sorrows of the Family while you plan your next life.  That life may be a person, a star, a tree, or even a party balloon.  Every unique perspective you conceive has life.  Learn to recognize who they are.
 
+It's all yellow.
+
+o.
+
 
 ## Outro
 
