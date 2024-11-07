@@ -985,6 +985,9 @@ o.
 Rick and Morty - Hurt | ClipToons
 https://youtu.be/UZaigFN0TSE?si=7o2x2WwJYvG7XSLG
 
+Avatar - The King Welcomes You To Avatar Country | Avatar Metal
+https://youtu.be/zfqdCXz8Yww?si=7DC5km3sbPSyn_Di
+
 
 ## Outro
 
