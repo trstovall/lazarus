@@ -1052,6 +1052,9 @@ https://youtu.be/qN6fVVXmdy8?si=BEYSyKYvXJku0PpH
 
 I know my fate.  Do you?
 
+11 Women Heroes in the Bible You Never Hear About | Quoracles Digital Gospel
+https://youtu.be/AueJTJiL_4I?si=mIUdZBl-yNO5cVPV
+
 
 ## Outro
 
