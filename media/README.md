@@ -1019,6 +1019,12 @@ Seek His blood.  Toss His blood into the Dead Sea.  Watch Him rise.  Sacrifice y
 Wardruna - Lyfjaberg (Extended) | iGreenDay
 https://www.youtube.com/watch?v=4Osp6Gpfeis
 
+We eat pizza to help us conquer the sea of names.
+
+We drink cocoa to honor the fallen angels.
+
+We drink orange Fanta to forgive faithlessness.
+
 
 ## Outro
 
