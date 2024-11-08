@@ -1039,7 +1039,18 @@ The wise shepherd loves them all equally.
 
 https://youtu.be/mMTVXDu5v5U?si=HNgJNxci86TcM2AA
 
-Unite or die.
+Unite or die.  I'll wait.
+
+Chris Cornell - Like a Stone Acoustic Live (Unplugged Sessions @ AOL) | ThePaule19
+https://www.youtube.com/watch?v=qpLQv5xL9Dc
+
+Johnny Cash - Man in Black (The Best Of The Johnny Cash TV Show)
+https://www.youtube.com/watch?v=oDd32K-mOVw
+
+Why Jesus Had to Go To Hell Will Shock You | Quoracles Digital Gospel
+https://youtu.be/qN6fVVXmdy8?si=BEYSyKYvXJku0PpH
+
+I know my fate.  Do you?
 
 
 ## Outro
