@@ -996,6 +996,8 @@ Balance your pride with the Holy Spirit.
 The Pretty Reckless - "Witches Burn" (Live In Spain) - Bat Performance
 https://youtu.be/dUh-SO9o998?si=GPPKxhNYuUyaHcG_
 
+Taylor, that bat was a gift from God.
+
 
 ## Outro
 
