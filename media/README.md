@@ -1080,7 +1080,7 @@ https://youtu.be/9lCFaSL9aSE?si=2gfw-h7fUOaQSs7z
 Two Suns In The Sunset | Pink Floyd
 https://youtu.be/GknwOu8C_B0?si=4N_0LQ7Umf7tF2SM
 
-Seek the creative arts.  Abandon the destructive arts.
+Seek the creative arts.  Abandon the destructive arts.  (Money is death.)
 
 Synergize.  Harmonize or face the abyss.
 
