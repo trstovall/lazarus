@@ -1016,6 +1016,9 @@ https://fb.watch/vJFD-I6q4a/
 
 Seek His blood.  Toss His blood into the Dead Sea.  Watch Him rise.  Sacrifice your petty gold if you need.
 
+Wardruna - Lyfjaberg (Extended) | iGreenDay
+https://www.youtube.com/watch?v=4Osp6Gpfeis
+
 
 ## Outro
 
