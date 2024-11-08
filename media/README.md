@@ -1055,6 +1055,15 @@ I know my fate.  Do you?
 11 Women Heroes in the Bible You Never Hear About | Quoracles Digital Gospel
 https://youtu.be/AueJTJiL_4I?si=mIUdZBl-yNO5cVPV
 
+AVATAR - Going Hunting (Official Music Video) | Avatar Metal
+https://youtu.be/3sQvH1LjFCw?si=SpvVgr4qzHyZxu_g
+
+Larkin Poe - Mad As A Hatter | Gramophone Armageddon
+https://www.youtube.com/watch?v=dGEjbJkxFhs
+
+Jim Croce - Time In A Bottle
+https://youtu.be/Q29sOLG8xGE?si=ec8uzwROPQPYiMG6
+
 
 ## Outro
 
