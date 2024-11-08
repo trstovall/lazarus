@@ -1028,6 +1028,15 @@ We drink orange Fanta to forgive faithlessness.
 Roxy Music - Mother Of Pearl (1974)
 https://youtu.be/VHexTTOdpXE?si=oii8blfBGsPxVDCL
 
+David Gilmour - Echoes - Live | Fred Mauss
+https://www.youtube.com/watch?v=lRgEIuHoq54
+
+The unwise shepherd hates the lost sheep.
+
+The seeking shepherd loves the lost sheep more than the rest.
+
+The wise shepherd loves them all equally.
+
 
 ## Outro
 
