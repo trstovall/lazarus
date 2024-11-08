@@ -1069,6 +1069,11 @@ https://youtu.be/sCwdRWGapV8?si=IvnTojObpUM54ExY
 
 Thank you, Hollywood.  You get spaghetti.
 
+Nirvana - Lithium (Live at Reading 1992)
+https://youtu.be/SJLe1UTqKvA?si=ZyYs_vLv9IkqO91i
+
+God raptured my favorite coat.  Winter is coming.
+
 
 ## Outro
 
