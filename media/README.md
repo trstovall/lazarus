@@ -1037,6 +1037,8 @@ The seeking shepherd loves the lost sheep more than the rest.
 
 The wise shepherd loves them all equally.
 
+https://youtu.be/mMTVXDu5v5U?si=HNgJNxci86TcM2AA
+
 
 ## Outro
 
