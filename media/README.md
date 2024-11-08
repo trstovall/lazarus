@@ -1000,6 +1000,22 @@ Taylor, that bat was a gift from God.
 
 I have seen the darkness that haunts you.  I have battled it many times.  Yet, it is not evil.  It is misplaced love.
 
+Taylor, you are my hero, my champion.  I love you.  Keep fighting.  Keep breathing.  STAY ALIVE.
+
+NINGEN ISU / Heartless Scat
+https://www.youtube.com/watch?v=CbI79e5iZKs
+
+Heilung | Anoana [Official Video]
+https://youtu.be/SVbc_Fwbt50?si=vR2q1rjFSikDIHX7
+
+Love + Death = Life.
+
+God, please have mercy on us all.
+
+https://fb.watch/vJFD-I6q4a/
+
+Seek His blood.  Toss His blood into the Dead Sea.  Watch Him rise.  Sacrifice your petty gold if you need.
+
 
 ## Outro
 
