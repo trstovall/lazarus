@@ -1080,6 +1080,17 @@ https://youtu.be/9lCFaSL9aSE?si=2gfw-h7fUOaQSs7z
 Two Suns In The Sunset | Pink Floyd
 https://youtu.be/GknwOu8C_B0?si=4N_0LQ7Umf7tF2SM
 
+Seek the creative arts.  Abandon the destructive arts.
+
+Synergize.  Harmonize or face the abyss.
+
+Nickelback - The Devil Went Down To Georgia (Cover by Nickelback) [Official Animated Video]
+https://youtu.be/X57qD_LTRgY?si=z-3qd2EvtnWU1H9v
+
+Follow the yellow brick road.  (It's all yellow.)
+
+| The Wizard of Oz
+
 
 ## Outro
 
