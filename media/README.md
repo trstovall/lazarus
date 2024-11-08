@@ -1077,8 +1077,8 @@ God raptured my favorite coat.  Winter is coming.
 Roger Waters - Mother
 https://youtu.be/9lCFaSL9aSE?si=2gfw-h7fUOaQSs7z
 
-Roger Waters - Two Suns In The Sunset
-https://youtu.be/P_m2CZU9vdk?si=zpPs1sjkRZbS9EL2
+Two Suns In The Sunset | Pink Floyd
+https://youtu.be/GknwOu8C_B0?si=4N_0LQ7Umf7tF2SM
 
 
 ## Outro
