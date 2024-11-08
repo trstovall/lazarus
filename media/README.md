@@ -1074,6 +1074,12 @@ https://youtu.be/SJLe1UTqKvA?si=ZyYs_vLv9IkqO91i
 
 God raptured my favorite coat.  Winter is coming.
 
+Roger Waters - Mother
+https://youtu.be/9lCFaSL9aSE?si=2gfw-h7fUOaQSs7z
+
+Roger Waters - Two Suns In The Sunset
+https://youtu.be/P_m2CZU9vdk?si=zpPs1sjkRZbS9EL2
+
 
 ## Outro
 
