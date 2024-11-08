@@ -998,6 +998,8 @@ https://youtu.be/dUh-SO9o998?si=GPPKxhNYuUyaHcG_
 
 Taylor, that bat was a gift from God.
 
+I have seen the darkness that haunts you.  I have battled it many times.  Yet, it is not evil.  It is misplaced love.
+
 
 ## Outro
 
