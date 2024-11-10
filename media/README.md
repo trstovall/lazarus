@@ -1094,7 +1094,7 @@ Follow the yellow brick road.  (It's \[not\] all yellow.)
 The Pretty Reckless at Download Festival Full Show | Challex
 https://youtu.be/ZMDin0zJBOw?si=Y_pQxkYWuBR_btFR
 
-| Taylor
+| The Pretty Reckless
 
 
 ## Outro
