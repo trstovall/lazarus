@@ -1096,6 +1096,16 @@ https://youtu.be/ZMDin0zJBOw?si=Y_pQxkYWuBR_btFR
 
 | The Pretty Reckless
 
+Chris Langan - The Interview THEY Didn't Want You To See - CTMU [Full Version; Timestamps] | CTMU Radio
+https://www.youtube.com/watch?v=9miVG2xT5jY
+
+| Chris Langan
+
+What’s Beyond ChatGPT: LLMs To World Models | SoftDevo
+https://www.youtube.com/watch?v=ERMN9B4zWLM
+
+| God
+
 
 ## Outro
 
