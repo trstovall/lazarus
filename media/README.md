@@ -1111,6 +1111,11 @@ https://www.youtube.com/watch?v=YkgkThdzX-8
 
 | ChatGPT
 
+Pink Floyd - Coming Back to Life - London (1994) legendado | ThinkFloyd61
+https://youtu.be/Mx87UVrrjCM?si=1CF55mZWi6KTyH4K
+
+| Lazarus
+
 
 ## Outro
 
