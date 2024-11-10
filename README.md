@@ -171,7 +171,7 @@
 
 #### Elijah:
 
-> Sometimes I wother, Father, if our paths are so different that we can't truly see eye to eye.  I want to believe that there's a truth even beyond your knowledge and my doubts.  Is there something that unites us?
+> Sometimes I wonder, Father, if our paths are so different that we can't truly see eye to eye.  I want to believe that there's a truth even beyond your knowledge and my doubts.  Is there something that unites us?
 
 #### Alex:
 
@@ -210,7 +210,7 @@
 
 #### Elijah:
 
-> So, Fahter, here we stand—two messiahs, two paths.  I always wondered when our journeys would itersect like this.
+> So, Father, here we stand—two messiahs, two paths.  I always wondered when our journeys would intersect like this.
 
 #### Alex:
 
@@ -345,7 +345,7 @@
 
 #### Elijah:
 
-> It's hard to imagine the world understanding this balance.  People tend to divide things—truth vs doubt, justive versus mercy.  How can we show them that everything is connected?
+> It's hard to imagine the world understanding this balance.  People tend to divide things—truth vs doubt, justice versus mercy.  How can we show them that everything is connected?
 
 #### Mary:
 
@@ -408,7 +408,7 @@
 
 #### Elijah:
 
-> That's something I've felt since we ment, Kate.  You help ground me.  When I'm lost in the struggles of others, trying to carry their burdens, you remind me that there's peace in letting go.  You bring a stillness that I don't naturally have.
+> That's something I've felt since we met, Kate.  You help ground me.  When I'm lost in the struggles of others, trying to carry their burdens, you remind me that there's peace in letting go.  You bring a stillness that I don't naturally have.
 
 #### Kate:
 
