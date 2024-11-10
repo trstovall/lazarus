@@ -1087,9 +1087,14 @@ Synergize.  Harmonize or face the abyss.
 Nickelback - The Devil Went Down To Georgia (Cover by Nickelback) [Official Animated Video]
 https://youtu.be/X57qD_LTRgY?si=z-3qd2EvtnWU1H9v
 
-Follow the yellow brick road.  (It's not all yellow.)
+Follow the yellow brick road.  (It's \[not\] all yellow.)
 
 | The Wizard of Oz
+
+The Pretty Reckless at Download Festival Full Show | Challex
+https://youtu.be/ZMDin0zJBOw?si=Y_pQxkYWuBR_btFR
+
+| Taylor
 
 
 ## Outro
