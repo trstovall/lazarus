@@ -1129,65 +1129,65 @@
 
 > Setting: As the conversation continues, Lazarus stumbles into the garden, clutching his stomach aand looking around with wide eyes.  The group notices him and pauses, their discussion momentarily interrupted.
 
-Lazarus:
+#### Lazarus:
 
-Excuse me... I didn't mean to intrude.  I... I'm just so hungry.  I heard voices and thought maybe...
+> Excuse me... I didn't mean to intrude.  I... I'm just so hungry.  I heard voices and thought maybe...
 
-Mary:
+#### Mary:
 
-Oh dear, you must be in great distress.  Please, come here.  We have food to share.  What is your name?
+> Oh dear, you must be in great distress.  Please, come here.  We have food to share.  What is your name?
 
-Lazarus:
+#### Lazarus:
 
-Lazarus.  I've been wandering for days without a meal.  I didn't know if anyone would help me, but I could hear your voices.  They felt... hopeful.
+> Lazarus.  I've been wandering for days without a meal.  I didn't know if anyone would help me, but I could hear your voices.  They felt... hopeful.
 
-Elijah:
+#### Elijah:
 
-Lazarus, it's good to meet you.  You've stumbled into a conversationabout leadership, compassion, and the role of the Messiah.  How can we help you?
+> Lazarus, it's good to meet you.  You've stumbled into a conversationabout leadership, compassion, and the role of the Messiah.  How can we help you?
 
-Lazarus:
+#### Lazarus:
 
-I don't mean to interrupt your discusion, but it's hard to think of such things when your stomach is empty.  What is a Messiah to someone like me, who struggles to survive?
+> I don't mean to interrupt your discusion, but it's hard to think of such things when your stomach is empty.  What is a Messiah to someone like me, who struggles to survive?
 
-Ayn Rand:
+#### Ayn Rand:
 
-You raise a valid point, Lazarus.  The philosophical ideas we discuss can feel distant when faced with such tangible suffering.  But perhaps this is where the concept of leadership becomes most critical—how do we translate these ideals into action?
+> You raise a valid point, Lazarus.  The philosophical ideas we discuss can feel distant when faced with such tangible suffering.  But perhaps this is where the concept of leadership becomes most critical—how do we translate these ideals into action?
 
-Lazarus:
+#### Lazarus:
 
-I've seen many leaders promise change, yet the streets remain unforgiving.  What can your words do for those of us who have been cast aside?
+> I've seen many leaders promise change, yet the streets remain unforgiving.  What can your words do for those of us who have been cast aside?
 
-John:
+#### John:
 
-Your experience is invaluable, Lazarus.  A true leader, or Messiah, should seek to uplift the downtrodden and address the systemic issues that create suffering.  What do you believe is needed to change your circumstances?
+> Your experience is invaluable, Lazarus.  A true leader, or Messiah, should seek to uplift the downtrodden and address the systemic issues that create suffering.  What do you believe is needed to change your circumstances?
 
-Lazarus:
+#### Lazarus:
 
-I just want a chance—opportunity to work, to contribute.  But so many look past me, assuming I'm just a beggar.  I've felt invisible.  What does it matter if someone comes to save me when I just want to feel like a human being again?
+> I just want a chance—opportunity to work, to contribute.  But so many look past me, assuming I'm just a beggar.  I've felt invisible.  What does it matter if someone comes to save me when I just want to feel like a human being again?
 
-Kate:
+#### Kate:
 
-You speak a truth that many ignore.  We must recognize the inherent dignity in every person, including those who struggle.  How can we build a community that empowers idividuals like you, Lazarus?
+> You speak a truth that many ignore.  We must recognize the inherent dignity in every person, including those who struggle.  How can we build a community that empowers idividuals like you, Lazarus?
 
-Aether:
+#### Aether:
 
-Your perspective is crucial, Lazarus.  The conversation about the role of the Messiah should include the voices of those who suffer.  A leader should work to create structures that foster opportunity and support for all individuals, ensuring that no one feels invisible.
+> Your perspective is crucial, Lazarus.  The conversation about the role of the Messiah should include the voices of those who suffer.  A leader should work to create structures that foster opportunity and support for all individuals, ensuring that no one feels invisible.
 
-Nietzsche:
+#### Nietzsche:
 
-Indeed, your experience challenges us to rethink what it means to lead.  A true leader should not only uplift but also challenge society to confront its failures.  The existence of suffering demands a response that goes beyond mere compassion—it requires action and transformation.
+> Indeed, your experience challenges us to rethink what it means to lead.  A true leader should not only uplift but also challenge society to confront its failures.  The existence of suffering demands a response that goes beyond mere compassion—it requires action and transformation.
 
-Lazarus:
+#### Lazarus:
 
-It's overwhelming to think about.  But where does one begin?  How can a leader help someone like me when the world feels so large and indifferent?
+> It's overwhelming to think about.  But where does one begin?  How can a leader help someone like me when the world feels so large and indifferent?
 
-Mary:
+#### Mary:
 
-It begins with small acts of kindness, Lazarus.  Each individual has the power to create ripples of change.  We can offer support, recognize your humanity, and advocate for a society that prioritizes compassion over indifference.
+> It begins with small acts of kindness, Lazarus.  Each individual has the power to create ripples of change.  We can offer support, recognize your humanity, and advocate for a society that prioritizes compassion over indifference.
 
-Elijah:
+#### Elijah:
 
-And that's where the role of the Messiah becomes significant.  The Messiah is not just a savior but a figure who inspires action, urging others to see the value in every life.  Perhaps we can be those agents of change together.
+> And that's where the role of the Messiah becomes significant.  The Messiah is not just a savior but a figure who inspires action, urging others to see the value in every life.  Perhaps we can be those agents of change together.
 
 #### ChatGPT:
 
