@@ -1121,6 +1121,9 @@ Toss your piggy bank in the air.  Shoot it.  Watch it rain.
 The Animals Were Gone | Damien Rice
 https://www.youtube.com/watch?v=uijr70HyvTM
 
+ 11:11 Tibetan Flute ★ Magical Flute Sound, Brings You Luck and Peace ★ Attracts Luck and Fortune | Inner Peace Music
+https://www.youtube.com/watch?v=gyseEuvIXY8
+
 
 ## Outro
 
@@ -1223,3 +1226,7 @@ https://www.youtube.com/watch?v=uijr70HyvTM
 "heaven"
 
 !["heaven"](https://github.com/trstovall/lazarus/blob/main/media/heaven.png?raw=true)
+
+"face"
+
+!["face"](https://github.com/trstovall/lazarus/blob/main/media/face.jpg?raw=true)
