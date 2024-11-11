@@ -1118,6 +1118,9 @@ https://youtu.be/Mx87UVrrjCM?si=1CF55mZWi6KTyH4K
 
 Toss your piggy bank in the air.  Shoot it.  Watch it rain.
 
+The Animals Were Gone | Damien Rice
+https://www.youtube.com/watch?v=uijr70HyvTM
+
 
 ## Outro
 
