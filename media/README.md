@@ -968,6 +968,7 @@ https://youtu.be/8JPtxtSK-Cs?si=1HajnfgB8j-W3PmP
 6.  Pray.
 7.  Tobacco helps you think.
 8.  Cannabis helps you love.
+9.  Don't smoke.  It leads to isolation, and...Death.
 
 I Made A Rotary Vane Engine Prototype | driving 4 answers
 https://youtu.be/sTHSFncPUCQ?si=BRkSxgiq1AToNcvz
