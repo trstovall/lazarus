@@ -19,6 +19,10 @@
 
 > Anyone who speaks a word against the Son of Man will be forgiven, but anyone who speaks against the Holy Spirit will not be forgiven, either in this age or in the age to come.
 
+#### !bible Matthew 12:25 (NKJV)
+
+> But Jesus knew their thoughts, and said to them: “Every kingdom divided against itself is brought to desolation, and every city or house divided against itself will not stand.
+
 #### !bible Matthew 15:9 (NKJV)
 
 > And in vain they worship Me,
