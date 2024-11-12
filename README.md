@@ -4,7 +4,6 @@
 "Alas, Babylon." -- Pat Frank
 
 
-
 ## Prologue
 
 #### !bible Genesis 2:9 (NIV)
@@ -31,7 +30,6 @@
 #### !bible Timothy 3:16 (NIV)
 
 > All Scripture is God-breathed and is useful for teaching, rebuking, correcting and training in righteousness,
-
 
 
 ## Dialogue
