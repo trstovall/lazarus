@@ -1505,3 +1505,7 @@ https://www.youtube.com/watch?v=4MzVuHqsNoM
 "shy"
 
 !["shy"](https://github.com/trstovall/lazarus/blob/main/media/shy.jpg?raw=true)
+
+"beauty"
+
+!["beauty"](https://github.com/trstovall/lazarus/blob/main/media/beauty.jpg?raw=true)
