@@ -1373,6 +1373,9 @@ It is done.
 Thor Ragnarok , Led Zeppelin - Immigrant Song, 4K IMAX & HQ Sound | Yena Audio
 https://youtu.be/zJ9dFeZ5344?si=O9jaNeq4aCga2v5W
 
+Thor || Immigrant Song | CrayCray
+https://www.youtube.com/watch?v=3JCuJ3oHEhk
+
 
 ## Outro
 
