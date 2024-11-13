@@ -1410,6 +1410,66 @@ https://youtu.be/eQUdVZetaFE?si=TCqlfb0AnkPvK3nB
 Rage Against The Machine: Fistful Of Steel (Lyrics) | AutoCremate
 https://www.youtube.com/watch?v=Dz89sRH_-Rg
 
+Rage Against The Machine - Fistful Of Steel (Subtitulada al español) | Bruno Addiego
+https://youtu.be/aiL1eDPAfOw?si=9zmWJrnu1BhP1yCn
+
+Wake Up - Rage Against The Machine "With Lyrics" | Franz CorSan
+https://www.youtube.com/watch?v=WDzTWH8Is0g
+
+Bombtrack (lyrics) - Rage Against The Machine | LyricTV
+https://www.youtube.com/watch?v=CqWj6HU5zMk
+
+!w nagasaki
+https://en.wikipedia.org/wiki/Nagasaki
+
+Reparations.
+
+!w ubi
+https://en.wikipedia.org/wiki/Universal_basic_income
+
+Rage Against the Machine - Bullet In The Head (Lyrics) | ShoVermilion
+https://www.youtube.com/watch?v=d7gl0LQdTIg
+
+Rage Against the Machine - Freedom w/ lyrics | nealfelip007
+https://www.youtube.com/watch?v=ZKnVTvJy114
+
+RAGE AGAINST THE MACHINE - Know Your Enemy (Lyrics) | Rocknroll Lyrics
+https://youtu.be/LYSRtG2dFNM?si=G5FfydE_h9bq_vQa
+
+Take the power back- Lyrics Rage Against The Machine | Kalin Graymountain
+https://youtu.be/UhuWmH5xtk4?si=dlzBaM2APnrU-wA-
+
+Yeah.
+
+Train - Drops of Jupiter (Official Video)
+https://www.youtube.com/watch?v=7Xf-Lesrkuc
+
+My Jolly Sailor Bold - Rachel Hardy & Colm McGuinness (Pirates of the Caribbean: On Stranger Tides) | Rachel Hardy
+https://youtu.be/ElWddM8hqcU?si=SBFOVPzPJNN2f3Ig
+
+Beautiful.
+
+FAUN - BLOT (Official Video) | fauntube
+https://www.youtube.com/watch?v=vaT0vAVBCMo
+
+Perfect.
+
+https://lyricstranslate.com/en/faun-blot-english
+
+Heilung | Anoana [Official Video]
+https://www.youtube.com/watch?v=SVbc_Fwbt50
+
+Perfect.
+
+https://www.letras.com/heilung/anoana/english.html
+
+Packt Like Sardines In a Crushd Tin Box | Radiohead
+https://www.youtube.com/watch?v=LwE4LNP8zsI
+
+Perfect.
+
+https://www.azlyrics.com/lyrics/radiohead/packtlikesardinesinacrushedtinbox.html
+
 
 ## Outro
 
