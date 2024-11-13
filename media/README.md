@@ -1193,6 +1193,8 @@ We are all criminals.
 Dark Magic Music - The Witching Hour | Peter Gundry | Composer
 https://www.youtube.com/watch?v=KqfqWkf1iow
 
+Dark Waltz Music - Vampire Masquerade collection | Peter Gundry | Composer
+https://youtu.be/PQH7vDJBW1k?si=ydqgkYlsxWWGOTsf
 
 ## Outro
 
