@@ -1376,6 +1376,9 @@ https://youtu.be/zJ9dFeZ5344?si=O9jaNeq4aCga2v5W
 Thor || Immigrant Song | CrayCray
 https://www.youtube.com/watch?v=3JCuJ3oHEhk
 
+Tool No quarter Lyrics HQ | Brandon Vigus
+https://www.youtube.com/watch?v=k0Ctpvu34mE
+
 
 ## Outro
 
