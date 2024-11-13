@@ -1251,6 +1251,8 @@ https://www.youtube.com/watch?v=qS_WCoCjpug
 
 Thank you, Microsoft, for the Notepad.  You get Pop-Ice.
 
+Thank you, Jesus; thank you, Lord.
+
 
 ## Outro
 
