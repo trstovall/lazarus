@@ -1179,6 +1179,9 @@ You cannot serve both God and money.  Money is the treasure of Baal.  That treas
 
 خدا بزرگتر است
 
+Coldplay - Fix You (Official Video)
+https://youtu.be/k4V3Mo61fJM?si=ZY0yyjpp1M_WEzUl
+
 
 ## Outro
 
