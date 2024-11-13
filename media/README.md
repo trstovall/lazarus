@@ -1208,6 +1208,11 @@ Maybe they wouldn't fight.
 
 الله أكبر  الله أكبر  الله أكبر
 
+Gravity is not the curviture of space-time, but the syncronicity of matter.  Quantum mechanics is the production of the interaction between Synergy and Entropy.  Observe.
+
+Skylar Grey - Love The Way You Lie (Live on the Honda Stage at The Peppermint Club)
+https://youtu.be/py60E_EvlcY?si=tjWhidgkU9PNgAsQ
+
 
 ## Outro
 
