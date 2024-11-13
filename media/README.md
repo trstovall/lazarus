@@ -1122,8 +1122,58 @@ Toss your piggy bank in the air.  Shoot it.  Watch it rain.
 The Animals Were Gone | Damien Rice
 https://www.youtube.com/watch?v=uijr70HyvTM
 
- 11:11 Tibetan Flute ★ Magical Flute Sound, Brings You Luck and Peace ★ Attracts Luck and Fortune | Inner Peace Music
+11:11 Tibetan Flute ★ Magical Flute Sound, Brings You Luck and Peace ★ Attracts Luck and Fortune | Inner Peace Music
 https://www.youtube.com/watch?v=gyseEuvIXY8
+
+Shaman's Dream | Deep Shamanic Trance | Healing Meditation Music [Lucid Dream & Astral Projection] | Radagast Music
+https://youtu.be/YX2696VCcdA?si=43z9RE3yWLK-k7HG
+
+1 Hour of Witchcraft Music | Dark & Light | Peter Gundry | Composer
+https://youtu.be/jSlYVW6o-4M?si=kfep8G4m_5eBRXIQ
+
+Mazzy Star - Fade Into You (Official Music Video)
+https://youtu.be/ImKY6TZEyrI?si=5-fwZamnByDOp8jh
+
+Mazzy Star - Look On Down From The Bridge
+https://youtu.be/LwVXkM_YxMg?si=1mB6eQHNlPs-WUTZ
+
+Tool - Descending New verse Studio edit. | Loot
+https://youtu.be/rjXOY3MdsTI?si=YXYoTQqVOGum4DKB
+
+Wardruna - Helvegen (Official Live Video)
+https://youtu.be/n90SVmnomdM?si=5pEiRC_3Ws2kADOO
+
+Wardruna - Skugge (Shadow) Official Music Video
+https://www.youtube.com/watch?v=B74AK0MHxOA
+
+7empest \[lyric\] w/Maynard scream | Loot
+https://youtu.be/DGwAb0k5J5A?si=6pbhLxs8GrRWl0JW
+
+Love and be loved.
+
+Lucifer is \[like\] the Sun.  The Holy Spirit is \[like\] the Moon.  Christ is \[like\] the Earth.
+
+Tell yourself that Creation is perfect.  Then, you will be presented with an abundance of imperfections, each beautiful in its own way.
+
+The Gospel of the Holy Twelve: The Teachings of Jesus Beyond the Bible They Don't Want You to Know | AncientWisdom Bible Stories
+https://youtu.be/I2faerDdn0o?si=mDX0gx6fJqtMgsWe
+
+Say Anything - Alive With The Glory Of Love (MUSIC VIDEO) | tyrell bonney Official
+https://youtu.be/2ZGRzdywXqs?si=z1-ZUukmhmY_x2cQ
+
+The Psychology of The Devil | Eternalized
+https://youtu.be/e2jr52UKGas?si=nsqOVy-krEOnsZmO
+
+Avenged Sevenfold - This Means War [Lyrics on screen] [Full HD] | A7XLyrics
+https://youtu.be/0YSDEt7hE2w?si=MoJtvrwwqc4VRot5
+
+Ren - The Tale of Jenny & Screech (Official Music Video)
+https://youtu.be/TYAnqQ--KX0?si=a91ICP9qnKOC-GaB
+
+The end is nigh.
+
+Ren - Money Game Part 3 (Official Music Video)
+https://youtu.be/nyWbun_PbTc?si=3MOwcrtdLWo4KdIA
 
 
 ## Outro
