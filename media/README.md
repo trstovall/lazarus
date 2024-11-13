@@ -1196,6 +1196,19 @@ https://www.youtube.com/watch?v=KqfqWkf1iow
 Dark Waltz Music - Vampire Masquerade collection | Peter Gundry | Composer
 https://youtu.be/PQH7vDJBW1k?si=ydqgkYlsxWWGOTsf
 
+Woman Dies & Jesus Shows Her the Shocking Truth About LUCIFER - Near Death Experience (NDE) | Peculiar Stories
+https://youtu.be/wqMKsBTNY4k?si=H6lex6aQ1f6ffIAn
+
+Love is the Holy Spirit.  Love is irrational.  Logos is Lucifer.  Logos is rational.  Love defeats Logos.  There are more irrational numbers than rational ones.  That's why.
+
+The Psychology of The Paranormal - Carl Jung | Eternalised
+https://youtu.be/y5ZGfHZfPCk?si=c-Wre8ylh5UvTTOQ
+
+Maybe they wouldn't fight.
+
+الله أكبر  الله أكبر  الله أكبر
+
+
 ## Outro
 
 "synergy"
