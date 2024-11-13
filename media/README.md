@@ -1354,3 +1354,6 @@ https://youtu.be/rfelvI_ikf4?si=mU6RhL_2-hmkagFz
 
 !["hero"](https://github.com/trstovall/lazarus/blob/main/media/hero.jpg?raw=true)
 
+"shy"
+
+!["shy"](https://github.com/trstovall/lazarus/blob/main/media/shy.jpg?raw=true)
