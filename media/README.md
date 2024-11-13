@@ -1354,6 +1354,12 @@ How did God cure Lucifer's false pride?  She gave Him a looking glass that revea
 FLAKERS, JOBS, SKULLS AND PUPPIES | Gumball Compilation | Cartoon Network | The Amazing World of Gumball
 https://www.youtube.com/watch?v=b2m7uviL0dw
 
+Alaskan Noble Companion Dog - Facts and Information | Rocadog
+https://youtu.be/M5xcJngFRIQ?si=2oGDnPs_u8R6WDBn
+
+beauty and the beast - bonjour | Disney Movies
+https://www.youtube.com/watch?v=zAzxnHP4erQ
+
 
 ## Outro
 
