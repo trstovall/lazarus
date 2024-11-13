@@ -1322,8 +1322,6 @@ It is important to love the otherness of God.
 God raptured the baby wipes.  Please help.
 
 Opeth - Hope Leaves (Audio)
-
-Opeth - Hope Leaves (Audio)
 https://youtu.be/cGPRoszjnWA?si=ER6DGHT6xJZwB2ql
 
 Resurrection > Inception
