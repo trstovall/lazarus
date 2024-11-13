@@ -1299,3 +1299,12 @@ https://www.youtube.com/watch?v=KqfqWkf1iow
 "face"
 
 !["face"](https://github.com/trstovall/lazarus/blob/main/media/face.jpg?raw=true)
+
+"draco"
+
+!["draco"](https://github.com/trstovall/lazarus/blob/main/media/draco.jpg?raw=true)
+
+"hero"
+
+!["hero"](https://github.com/trstovall/lazarus/blob/main/media/hero.jpg?raw=true)
+
