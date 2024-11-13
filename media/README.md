@@ -1234,6 +1234,11 @@ https://youtu.be/YoezYyb3ECU?si=GFTA0x3QIbzSouNq
 
 | Jack
 
+Sesame Street: Wanna Buy An Eight Ernie?
+https://youtu.be/rfelvI_ikf4?si=mU6RhL_2-hmkagFz
+
+| goat.
+
 
 ## Outro
 
