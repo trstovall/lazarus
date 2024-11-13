@@ -1213,6 +1213,14 @@ Gravity is not the curviture of space-time, but the syncronicity of matter.  Qua
 Skylar Grey - Love The Way You Lie (Live on the Honda Stage at The Peppermint Club)
 https://youtu.be/py60E_EvlcY?si=tjWhidgkU9PNgAsQ
 
+Skylar Grey - Clarity (Live on the Honda Stage at The Peppermint Club)
+https://youtu.be/oadiWlt2Ay4?si=s4KYuIy5p45LJWfz
+
+"Evil" is an "evil" word. - d'evil
+
+The 7 Hardest Spiritual Tests Only the Chosen Ones Endure | Spiritual Odyssey
+https://youtu.be/Psio96SlnGU?si=INL2pBo_mzPmemR0
+
 
 ## Outro
 
