@@ -1188,6 +1188,8 @@ Seek Mom.
 
 Life is beautiful.
 
+We are all criminals.
+
 
 ## Outro
 
