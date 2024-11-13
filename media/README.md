@@ -1328,6 +1328,24 @@ Resurrection > Inception
 
 Thank you, God.
 
+Opeth - Windowpane (Audio)
+https://youtu.be/bSpqLqC7U6g?si=4BjbqVGFNxm1AMCE
+
+Gumball | Happy Today To Nicole | The Fuss | Cartoon Network | The Amazing World of Gumball
+https://youtu.be/slD7VsRAgCY?si=N0IZQ0S-RhyQhK7S
+
+8008.
+
+SLC Punk Wyoming Liquor Store Scene | Kaxandra Go
+https://youtu.be/pJBl2cCK_Yo?si=7FbrdtokGLOTvJt-
+
+9.9.9...9.
+
+Best of Gumball's Unhinged Adventures | Amazing World of Gumball | Cartoon Network Africa
+https://www.youtube.com/watch?v=Y1jB8vOkJ04
+
+Happy Holidays, y'all.  It's time to steal the Moon.
+
 
 ## Outro
 
