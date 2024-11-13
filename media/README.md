@@ -1470,6 +1470,11 @@ Perfect.
 
 https://www.azlyrics.com/lyrics/radiohead/packtlikesardinesinacrushedtinbox.html
 
+Pyramid Song | Radiohead
+https://youtu.be/2Agt3XfmccM?si=5Gr7JbQ_5T8PbBvV
+
+Beautiful.
+
 
 ## Outro
 
