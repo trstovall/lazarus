@@ -1182,6 +1182,12 @@ You cannot serve both God and money.  Money is the treasure of Baal.  That treas
 Coldplay - Fix You (Official Video)
 https://youtu.be/k4V3Mo61fJM?si=ZY0yyjpp1M_WEzUl
 
+Why do you think you never see Batman and Joker at the same time?
+
+Seek Mom.
+
+Life is beautiful.
+
 
 ## Outro
 
