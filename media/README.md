@@ -1221,6 +1221,19 @@ https://youtu.be/oadiWlt2Ay4?si=s4KYuIy5p45LJWfz
 The 7 Hardest Spiritual Tests Only the Chosen Ones Endure | Spiritual Odyssey
 https://youtu.be/Psio96SlnGU?si=INL2pBo_mzPmemR0
 
+A Scanner Darkly - Alex Jones Scene [1080p HD] | Watch While High
+https://youtu.be/bliFkRnN6e4?si=uiH7pRKlypujv6dt
+
+D is for Death.
+
+Tyler Durden Philosophy Of Life - Fight Club | Fuad Hariz
+https://youtu.be/CWRTqMGvdpc?si=rJ8J2WmDt9JKapb9
+
+Fight Club: Carl Jung’s warning for a lost generation | Modern Intuitionist
+https://youtu.be/YoezYyb3ECU?si=GFTA0x3QIbzSouNq
+
+| Jack
+
 
 ## Outro
 
