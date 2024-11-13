@@ -1244,6 +1244,11 @@ https://youtu.be/YbTMRzlthdk?si=HU87HHSsNznsds1w
 
 | sheep.
 
+Sesame Street - Lefty tries selling Ernie a notepad | LittleJerryFan92 \*RETIRED CHANNEL\*
+
+Thank you, Microsoft for the Notepad.  You get Pop-Ice.
+
+
 ## Outro
 
 "synergy"
