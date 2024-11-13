@@ -1349,7 +1349,7 @@ Happy Holidays, y'all.  It's time to steal the Moon.
 Joe Rogan Experience #1245 - Andrew Yang | PowerfulJRE
 https://www.youtube.com/watch?v=cTsEzmFamZ8
 
-How did God cure Lucifer's pride?  She gave Him a looking glass that revealed the world where He was God.
+How did God cure Lucifer's false pride?  She gave Him a looking glass that revealed the world where He was God.
 
 FLAKERS, JOBS, SKULLS AND PUPPIES | Gumball Compilation | Cartoon Network | The Amazing World of Gumball
 https://www.youtube.com/watch?v=b2m7uviL0dw
