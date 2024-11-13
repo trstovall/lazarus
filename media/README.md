@@ -1379,6 +1379,8 @@ https://www.youtube.com/watch?v=3JCuJ3oHEhk
 Tool No quarter Lyrics HQ | Brandon Vigus
 https://www.youtube.com/watch?v=k0Ctpvu34mE
 
+There is the physical world and the spiritual world.  Dark matter and dark energy, like many phenomena, are a product of the interactions between the two worlds.
+
 
 ## Outro
 
