@@ -1404,6 +1404,9 @@ https://www.youtube.com/watch?v=5gM4WixYLrs
 
 Now it's 20% cooler.
 
+rage against the machine - bulls on parade lyrics | random88cats
+https://youtu.be/eQUdVZetaFE?si=TCqlfb0AnkPvK3nB
+
 
 ## Outro
 
