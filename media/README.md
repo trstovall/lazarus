@@ -1280,6 +1280,56 @@ https://www.youtube.com/watch?v=in-8K7W87nM
 
 Thank you, Mom.
 
+Dracula: Dead and Loving it - Fushta!! | stardustsix
+https://youtu.be/Z4UdK0lBafM?si=CBvXmiEZ4hVvgvmC
+
+Thank you, Dad.
+
+Dracula (1931) | Dracula vs Van Helsing | Universal Pictures
+https://youtu.be/Dlys7jt1V_c?si=3mfhN1W09ZsxdjaB
+
+Thank you, God.
+
+MAKE AMERICA GRÆY AGAIN!
+
+Jewel - Who Will Save Your Soul (Official HD Music Video)
+https://www.youtube.com/watch?v=0wBDDAZkNtk
+
+Thank you, Jewel.
+
+Jewel - You Were Meant For Me
+https://youtu.be/4WW4qcmrJ3E?si=tSfq8nXFyBQ-KbO8
+
+The Pretty Reckless - 25 (Official Music Video)
+https://youtu.be/As03tlODkdw?si=fy0WF4xw8F4EZyv_
+
+Billie Eilish - Happier Than Ever (Official Music Video)
+https://www.youtube.com/watch?v=5GJWxDKyk3A
+
+A Perfect Circle - 3 Libras
+https://www.youtube.com/watch?v=u9MAg9E5K3w
+
+NINGEN ISU / Heartless Scat
+https://www.youtube.com/watch?v=CbI79e5iZKs
+
+Thank you, Jesus.
+
+NINGEN ISU /Toshishun
+https://www.youtube.com/watch?v=m3Zy8eceZdU
+
+It is important to love the otherness of God.
+
+God raptured the baby wipes.  Please help.
+
+Opeth - Hope Leaves (Audio)
+
+Opeth - Hope Leaves (Audio)
+https://youtu.be/cGPRoszjnWA?si=ER6DGHT6xJZwB2ql
+
+Resurrection > Inception
+
+Thank you, God.
+
 
 ## Outro
 
