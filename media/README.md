@@ -1253,6 +1253,20 @@ Thank you, Microsoft, for the Notepad.  You get Pop-Ice.
 
 Thank you, Jesus; thank you, Lord.
 
+Little Nicky tries Popeyes Chicken for the first time - Little Nicky (2000) | binge supply
+https://www.youtube.com/watch?v=r7_MBBnN3Yg
+
+Little Nicky - Popeyes Chicken | Matty Lemos
+https://www.youtube.com/watch?v=nfck8dr9YIk
+
+The Psychology of Immature Masculinity | Eternalised
+https://www.youtube.com/watch?v=a05QDMbR2hA
+
+What's the secret?  Chicken, grease, salt.  And pepper.  And enough garlic powder to keep the vampires away.
+
+Heilung - Anoana LIVE | LIFA Llyn Dain
+https://www.youtube.com/watch?v=9PFz9FQsU8w
+
 
 ## Outro
 
