@@ -1387,6 +1387,23 @@ https://www.youtube.com/watch?v=RXqNwcrVq_Q
 TOOL - Reflection (Audio)
 https://www.youtube.com/watch?v=4MzVuHqsNoM
 
+A MAN WITH NO FRIENDS | Powerfull Speech | #alanwatts | Alan Watts Legacy
+https://www.youtube.com/watch?v=cp-ttVUuNJw
+
+20% Cooler [PMV] | Korean
+https://www.youtube.com/watch?v=1RTlB8Hmcw0
+
+[PMV] 20 Percent Cooler Remix Music Video | BronyDanceParty
+https://www.youtube.com/watch?v=M5dgyCryWJY
+
+20% Cooler - My Little Pony (Rainbow Dash)
+https://www.youtube.com/watch?v=ogeXQf6wZbw
+
+My Little Pony | A Canterlot Wedding | FULL EPISODES | My Little Pony Friendship is Magic | MLP: FiM | My Little Pony - Friendship Is Magic
+https://www.youtube.com/watch?v=5gM4WixYLrs
+
+Now it's 20% cooler.
+
 
 ## Outro
 
