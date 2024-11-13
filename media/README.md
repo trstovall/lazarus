@@ -1177,6 +1177,8 @@ https://youtu.be/nyWbun_PbTc?si=3MOwcrtdLWo4KdIA
 
 You cannot serve both God and money.  Money is the treasure of Baal.  That treasure is a prison.
 
+خدا بزرگتر است
+
 
 ## Outro
 
