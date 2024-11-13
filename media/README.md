@@ -1242,6 +1242,7 @@ https://youtu.be/rfelvI_ikf4?si=mU6RhL_2-hmkagFz
 Sesame Street - Lefty tries to sell Ernie a ME sign | LittleJerryFan92 \*RETIRED CHANNEL\*
 https://youtu.be/YbTMRzlthdk?si=HU87HHSsNznsds1w
 
+| sheep.
 
 ## Outro
 
