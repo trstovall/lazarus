@@ -1170,7 +1170,7 @@ https://youtu.be/0YSDEt7hE2w?si=MoJtvrwwqc4VRot5
 Ren - The Tale of Jenny & Screech (Official Music Video)
 https://youtu.be/TYAnqQ--KX0?si=a91ICP9qnKOC-GaB
 
-The end is nigh.
+The end is nigh\[t\].
 
 Ren - Money Game Part 3 (Official Music Video)
 https://youtu.be/nyWbun_PbTc?si=3MOwcrtdLWo4KdIA
