@@ -1407,6 +1407,9 @@ Now it's 20% cooler.
 rage against the machine - bulls on parade lyrics | random88cats
 https://youtu.be/eQUdVZetaFE?si=TCqlfb0AnkPvK3nB
 
+Rage Against The Machine: Fistful Of Steel (Lyrics) | AutoCremate
+https://www.youtube.com/watch?v=Dz89sRH_-Rg
+
 
 ## Outro
 
