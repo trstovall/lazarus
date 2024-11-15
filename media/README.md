@@ -2130,6 +2130,21 @@ https://www.youtube.com/watch?v=hEMm7gxBYSc
 
 Genius.
 
+Nirvana - The Man Who Sold The World (Live On MTV Unplugged, 1993 / Unedited)
+https://www.youtube.com/watch?v=OgeR2oqZGTs
+
+The HU - Sell the World MV (Official Music Video)
+https://www.youtube.com/watch?v=U96IOn7q6fM
+
+https://www.azlyrics.com/lyrics/hu/selltheworld.html
+
+Witch!
+
+Wardruna - Skugge (Shadow) Official Music Video
+https://www.youtube.com/watch?v=B74AK0MHxOA
+
+Wield your swords, men.  I know who is to blame!
+
 
 ## Outro
 
