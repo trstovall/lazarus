@@ -2143,7 +2143,14 @@ Witch!
 Wardruna - Skugge (Shadow) Official Music Video
 https://www.youtube.com/watch?v=B74AK0MHxOA
 
+https://lyricstranslate.com/en/skugge-shadow.html-0
+
 Wield your swords, men.  I know who is to blame!
+
+Wardruna - Hertan (Heart) Official Music Video
+https://www.youtube.com/watch?v=OfiZXqKDR3s
+
+https://lyricstranslate.com/en/wardruna-hertan-english
 
 
 ## Outro
