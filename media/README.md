@@ -1852,6 +1852,13 @@ Know your enemy.
 Godsmack - Greed (Official Music Video)
 https://www.youtube.com/watch?v=Vgnj2NcMMDY
 
+4.
+
+Submit.
+
+Godsmack - Straight Out Of Line (Official Music Video)
+https://www.youtube.com/watch?v=z9FmOc0ofGc
+
 
 ## Outro
 
