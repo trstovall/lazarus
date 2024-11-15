@@ -1742,6 +1742,44 @@ https://www.youtube.com/watch?v=PGwPSPIhohk
 
 Yeah.
 
+Pink Floyd - Welcome To The Machine (AI Music Video) | nacho AI business
+https://www.youtube.com/watch?v=9Gnu9u2Owms
+
+The end is nigh't.  Here is to a dawn for our children.
+
+Comfortably Numb | Pink Floyd | Ai Music Video | The BonsAi Effect
+https://youtu.be/hOo-Hyxcy1o?si=54_QlGbK_v2VcdBF
+
+Imagine.
+
+How to Move the Sun: Stellar Engines | Kurzgesagt – In a Nutshell
+https://www.youtube.com/watch?v=v3y8AIEX_dU
+
+SAIL.
+
+AWOLNATION - Sail (Official Music Video) | Red Bull Records
+https://www.youtube.com/watch?v=tgIqecROs5M
+
+SAIL.
+
+The White Stripes - Seven Nation Army (Official Music Video)
+https://www.youtube.com/watch?v=0J2QdDbelmY
+
+SAIL.
+
+Cage The Elephant - Ain't No Rest For The Wicked (Official Video)
+https://www.youtube.com/watch?v=HKtsdZs9LJo
+
+SAIL.
+
+My Jolly Sailor Bold- MALINDA cover (Pirates of the Caribbean) | MALINDA
+https://www.youtube.com/watch?v=Ft_ScKDivEE
+
+<3.
+
+Well It's True That We Love One Another | The White Stripes
+https://www.youtube.com/watch?v=aXm1g4TJ46M
+
 
 ## Outro
 
