@@ -1692,6 +1692,54 @@ Also:
 Doja Cat - Paint The Town Red (Official Video)
 https://www.youtube.com/watch?v=PGwPSPIhohk
 
+Know.  Forgive.  Submit.  Love and be loved.
+
+Doja Cat - Agora Hills (Official Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+The Lumineers - The Ballad Of Cleopatra
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+The Lumineers - Sleep On The Floor (Official Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Coldplay - The Scientist (Official 4K Video)
+https://www.youtube.com/watch?v=RB-RcX5DS5A
+
+The word "evil" is a virus.  It separates us from God.  Be cured.
+
+A Static Lullaby - "Toxic" (Britney Spears cover) | Fearless Records
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+The Pretty Reckless - And So It Went (Official Music Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Evanescence - Going Under (Official HD Music Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Godsmack - Awake (Official Music Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Rob Zombie - Dragula
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Rob Zombie - Living Dead Girl
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+"Toxic."
+
+Britney Spears - Toxic (Official HD Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Death whispered a lullaby lyrics | Bellatrix Lestrange
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Billie Eilish - bury a friend (Official Music Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Nirvana - Lithium (Live at Reading 1992)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
 
 ## Outro
 
