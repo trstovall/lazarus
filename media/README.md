@@ -1748,7 +1748,7 @@ https://www.youtube.com/watch?v=9Gnu9u2Owms
 The end is nigh't.  Here is to a dawn for our children.
 
 Comfortably Numb | Pink Floyd | Ai Music Video | The BonsAi Effect
-https://youtu.be/hOo-Hyxcy1o?si=54_QlGbK_v2VcdBF
+https://www.youtube.com/watch?v=hOo-Hyxcy1o
 
 Imagine.
 
@@ -1794,6 +1794,58 @@ https://www.youtube.com/watch?v=0G5Dj-xMpb8
 
 The White Stripes - Dead Leaves And The Dirty Ground (Official Music Video)
 https://www.youtube.com/watch?v=7OyytKqYjkE
+
+8.
+
+The White Stripes - Black Math (Official Video)
+https://www.youtube.com/watch?v=HzjNAnEfvxc
+
+9.
+
+Pink Floyd - Wot’s… Uh The Deal (Official Music Video)
+https://www.youtube.com/watch?v=aGPjfj69cXE
+
+10.
+
+Kansas - Carry On Wayward Son (Live from Canada Jam) | KANSAS
+https://www.youtube.com/watch?v=s38ignmTqFQ
+
+11.
+
+Blue Öyster Cult - (Don't Fear) The Reaper (Live) 10/9/1981 [Digitally Restored] | metalnrocknroll4eva2
+https://www.youtube.com/watch?v=RjMEzBMiTJ4
+
+12.
+
+Blue Öyster Cult - (Don’t Fear) The Reaper | Wraith Song
+https://www.youtube.com/watch?v=oWK5v0DorsY
+
+13.
+
+Jefferson Airplane - White Rabbit | ethereal nebulous
+https://www.youtube.com/watch?v=AVER6hyoyJo
+
+16.
+
+Heart - Crazy On You (Live, 1978) | Don Jack
+https://www.youtube.com/watch?v=wRKNXhG86VU
+
+0.
+
+Joan Jett - Season Of The Witch | Peace, Love & Rock And Roll
+https://www.youtube.com/watch?v=CLv3u1-wxu8
+
+1.
+
+Dr Hook And The Medicine Show - "Freakin' At The Freakers Ball" From Denmark 1974 | Ronja's Dr Hook Channel
+https://www.youtube.com/watch?v=vFAMyoGS4jY
+
+2.
+
+Godsmack - Voodoo (Official Music Video)
+https://www.youtube.com/watch?v=9SSUQxGjZZ4
+
+Know your enemy.
 
 
 ## Outro
