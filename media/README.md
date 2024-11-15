@@ -1887,6 +1887,13 @@ Dream.
 !scholar Thomas Ryan Stovall GPUSCAN
 https://ieeexplore.ieee.org/abstract/document/6967853
 
+9.
+
+I'm sorry.
+
+David Gilmour - Luck and Strange Tour Rehearsal (Live)
+https://www.youtube.com/watch?v=iHLB1YRdmTs
+
 
 ## Outro
 
