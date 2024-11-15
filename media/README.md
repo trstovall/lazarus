@@ -1880,6 +1880,13 @@ Sleep.
 Night lofi playlist • Cowboy Bebop lofi music | chill beats to relax/study to | Cowboy Bebop
 https://www.youtube.com/watch?v=ajvWL95rkwc
 
+8.
+
+Dream.
+
+!scholar Thomas Ryan Stovall GPUSCAN
+https://ieeexplore.ieee.org/abstract/document/6967853
+
 
 ## Outro
 
