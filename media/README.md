@@ -1475,6 +1475,223 @@ https://youtu.be/2Agt3XfmccM?si=5Gr7JbQ_5T8PbBvV
 
 Beautiful.
 
+Stevie Ray Vaughan - Texas Flood (Live at the El Mocambo)
+https://www.youtube.com/watch?v=KC5H9P4F5Uk
+
+Prince and The Revolution - Purple Rain (Live in Syracuse, March 30, 1985) | Prince
+https://www.youtube.com/watch?v=bm03wqLY3Nc
+
+David Gilmour - Shine On You Crazy Diamond (Live At Pompeii)
+https://www.youtube.com/watch?v=CiXNIjGX1hY
+
+Kid Rock - Only God Knows Why [02] (Live at Rock Im Park 2001) | TheNeoton
+https://www.youtube.com/watch?v=Lz-RkSzx_AE
+
+Nirvana - Something In The Way (Live On MTV Unplugged Unedited, 1993)
+https://www.youtube.com/watch?v=1YhR5UfaAzM
+
+Lynyrd Skynyrd - Simple Man 1987 | windowsill7
+https://www.youtube.com/watch?v=CYiCjMOipn0
+
+Chase McDaniel - Made It This Far
+https://www.youtube.com/watch?v=qMLgCAjStJA
+
+Nickelback - The Devil Went Down To Georgia (Cover by Nickelback) [Official Animated Video]
+https://www.youtube.com/watch?v=X57qD_LTRgY
+
+Godsmack :: Under Your Scars :: Uncasville, CT :: 10/26/24 | Karen Jackie
+https://youtu.be/ehpmfbRVZm0?si=Jpin8oMPS-niJ-4m
+
+The Book of Zadkiel: Angel’s Forbidden Bible Teachings | AncientWisdom Bible Stories
+https://www.youtube.com/watch?v=sDP7r9PXn4E
+
+Roger Waters - Mother
+https://www.youtube.com/watch?v=9lCFaSL9aSE
+
+The FIFTH Element - Tolkyn Zabirova | Толкын Забирова
+https://www.youtube.com/watch?v=5ZNgJ7-dUmk
+
+2CELLOS - Thunderstruck [OFFICIAL VIDEO]
+https://www.youtube.com/watch?v=uT3SBzmDxGk
+
+When a Woman Loves You | Best Speech | #alanwatts | Alan Watts Legacy
+https://www.youtube.com/watch?v=PL3H8MQ3Vss
+
+Thank you, Alan.  Breathe again, my friend.
+
+Pink Floyd - Wish You Were Here (Eternal Sunshine of the Spotless Mind) [HD] | Cristian Nicolae
+https://www.youtube.com/watch?v=9P16xvwMQ5A
+
+Zorg Being Iconic for 10 Minutes | The Fifth Element | Creature Features
+https://www.youtube.com/watch?v=KXwqUMkXFiI
+
+best of multipass | DLFproductions
+https://www.youtube.com/watch?v=9jWGbvemTag
+
+Fifth Element Diva Song RARE FULL DANCE VIDEO | iLIKEJESSE
+https://www.youtube.com/watch?v=hVqh2_0sR_g
+
+Radiohead - Street Spirit (Fade Out)
+https://www.youtube.com/watch?v=LCJblaUkkfc
+
+Beautiful.
+
+We Have To Talk About Weed | Kurzgesagt – In a Nutshell
+https://www.youtube.com/watch?v=qBRaI0ZeAf8
+
+Correlation is not causation.
+
+The Most Insane Weapon You Never Heard About | Kurzgesagt – In a Nutshell
+https://www.youtube.com/watch?v=E55uSCO5D2w
+
+Might doesn't make right.  Truth and Love do.
+
+Drop food, not bombs.
+
+Logos is the observer.  Love is the observed.
+
+The HU - Wolf Totem feat. Jacoby Shaddix of Papa Roach (Official Music Video) | Better Noise Music
+https://www.youtube.com/watch?v=sv29DzgiXZA
+
+Eminem & Billie Eilish - Finale (Music Video) (2024) | NXRemix
+https://youtu.be/SSDjvY7JI40?si=VcyY6g86-Hn_qHpi
+
+Thank you.
+
+Eminem - When I'm Gone (Official Music Video) | EminemMusic
+https://www.youtube.com/watch?v=1wYNFfgrXTI
+
+Eminem - Like Toy Soldiers (Official Music Video) | EminemMusic
+https://www.youtube.com/watch?v=lexLAjh8fPA
+
+Eminem - Stan ft. Dido (Official Video - Dirty Version) | EminemExplicit
+https://www.youtube.com/watch?v=aqUpe6QeBTk
+
+Eminem - Love The Way You Lie ft. Rihanna | EminemMusic
+https://www.youtube.com/watch?v=uelHwf8o7_U
+
+Don't lie.  Rise.
+
+The Pretty Reckless - My Medicine
+https://www.youtube.com/watch?v=cJMSDlWlfMM
+
+The Pretty Reckless - Just Tonight PROSHOT HQ | Marianne “The Zombie” Audouin
+https://www.youtube.com/watch?v=ZCpK84Fs_LY
+
+The Pretty Reckless (Taylor Momsen) - "Seven Nation Army" Live - Seattle, WA - 03-17-12 | Brian E
+https://www.youtube.com/watch?v=E7ctBTBDQjs
+
+The Pretty Reckless - "Hit Me Like A Man (Perez Hilton Exclusive Performance)" | Perez Hilton
+https://www.youtube.com/watch?v=XWvrxlyG5F8
+
+The Pretty Reckless - Make Me Wanna Die
+https://www.youtube.com/watch?v=txBfhpm1jI0
+
+Never die, I pray, for all.
+
+The Pretty Reckless - "Witches Burn" (Live In Spain) - Bat Performance
+https://www.youtube.com/watch?v=dUh-SO9o998
+
+Billie Eilish - xanny (Official Music Video)
+https://www.youtube.com/watch?v=LZyybvVx-js
+
+Gorillaz - DARE (Official Video)
+https://www.youtube.com/watch?v=uAOR6ib95kQ
+
+twenty one pilots: Heathens (from Suicide Squad: The Album) [OFFICIAL VIDEO] | Fueled By Ramen
+https://www.youtube.com/watch?v=UprcpdwuwCg
+
+Nirvana – Something In The Way | The Batman | 2022 | Evgenia
+https://www.youtube.com/watch?v=Qm-eDEx5qaQ
+
+Fight Club • Where Is My Mind • Pixies | HD Film Tributes
+https://www.youtube.com/watch?v=FSCgfI3OG7s
+
+Harley Quinn- Gangsta's Paradise | Carrie
+https://www.youtube.com/watch?v=N44lUwwvNFs
+
+Harley Quinn || Insane Like Me – Gasoline | LikeARiver
+https://www.youtube.com/watch?v=XeltAGwwsDQ
+
+Harley Quinn - I'm gonna show you crazy | The Joker Club
+https://www.youtube.com/watch?v=DpjeRTMPvJo
+
+Warriors | Season 2020 Cinematic - League of Legends (ft. 2WEI and Edda Hayes)
+https://www.youtube.com/watch?v=aR-KAldshAE
+
+Awaken | Season 2019 Cinematic - League of Legends (ft. Valerie Broussard)
+https://www.youtube.com/watch?v=zF5Ddo9JdpY
+
+Warriors, awaken.
+
+Willie Nelson - Milk Cow Blues (Live From Austin City Limits, 1981)
+https://www.youtube.com/watch?v=9GnEpw-A0to
+
+Tool - Sober Live (Pro Shot) Remastered | ToolArchive
+https://www.youtube.com/watch?v=u7lweNCCwS0
+
+Let's be sober.  Jesus is the Messiah.  Death is His Father.  Love is His Mother.
+
+TOOL-Stinkfist / Bottom 12.31.1995 | huntingtonst
+https://www.youtube.com/watch?v=3TDV53ILcHc
+
+Here's my champion, God.  Where is Yours?
+
+Puscifer - "The Remedy" (Official Video) | pusciferdotcom
+https://www.youtube.com/watch?v=HivxFBB87-Y
+
+"Here."
+
+Highly Suspect - Lydia [Official Video]
+https://www.youtube.com/watch?v=ev-bR9ii7Gs
+
+Pink Floyd - Echoes / Live at Pompeii ( full ) | vale46st
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Rage Against The Machine - Know Your Enemy (Feat. Maynard) | Concert Rage
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Chris Cornell - Like a Stone Acoustic Live (Unplugged Sessions @ AOL) | ThePaule19
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+STRUGGLE - LIKE FATHER LIKE SON (Ft. JOSHUA HEDLEY) | Struggle Jennings
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Jelly Roll - My Cross [Unofficial Visualizer] | CMO
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Enough.
+
+Opeth - Harvest (Official Lyric Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Godsmack - I Stand Alone (Official Music Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Winner:
+
+Heilung - Traust LIVE | LIFA Iotungard
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+https://lyricstranslate.com/en/traust-trust.html
+
+For the King:
+
+Heilung | Anoana [Official Video]
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+https://www.letras.com/heilung/anoana/english.html
+
+For the Queen:
+
+Katy Perry - Dark Horse ft. Juicy J
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
+Also:
+
+Doja Cat - Paint The Town Red (Official Video)
+https://www.youtube.com/watch?v=PGwPSPIhohk
+
 
 ## Outro
 
