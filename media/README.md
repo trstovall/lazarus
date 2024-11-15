@@ -1894,6 +1894,242 @@ I'm sorry.
 David Gilmour - Luck and Strange Tour Rehearsal (Live)
 https://www.youtube.com/watch?v=iHLB1YRdmTs
 
+10.
+
+Listen to your elders.  Their music is better.
+
+Please Don't Bury Me | John Prine
+https://www.youtube.com/watch?v=nmgYCI3OWw4
+
+Thank you, Time, you punk.
+
+Roxy Music - Mother Of Pearl (1974) | Musikladen
+https://www.youtube.com/watch?v=VHexTTOdpXE
+
+Thank you, YouTube.  I love Pink Floyd.
+
+P̲ink F̲lo̲yd - The D̲ark S̲ide of the Mo̲o̲n (Full Album) (2024 A.I. Visuals) | Hueman Instrumentality
+https://www.youtube.com/watch?v=iKZvd6m14d4
+
+Thank you, TOOL.  I need more cannon fodder.
+
+Message to Harry Manback with Lyrics On-screen | Ghoster
+https://www.youtube.com/watch?v=bew68Yc8Qns
+
+Tool - Third Eye Live ( Lyrics) | Mohammad Fakhori
+https://www.youtube.com/watch?v=tdvLG4yOpSo
+
+Tool - Holy Trinity (A Beautiful Journey) | anypath
+https://www.youtube.com/watch?v=dQZ9OLIs2zE
+
+Descending | TOOL
+https://www.youtube.com/watch?v=crI1ApHQXO0
+
+TOOL - Invincible Music Video @TOOLmusic | Jaxson Conklin (Elmo - Brawl Stars)
+https://www.youtube.com/watch?v=eCp6bUmEOZM
+
+Yes, even mighty Xerxes (Trump) can bleed.
+
+Maynard James Keenan’s Favorite Tool | Bertcast # 649 | Bert Kreischer
+https://www.youtube.com/watch?v=0JKCKGiZX88
+
+Tool - Jimmy (Lyrics) | Music Pills
+https://www.youtube.com/watch?v=HUcufHo2fjw
+
+TOOL - Schism (LIVE) 4K | FirstRowConcert
+https://www.youtube.com/watch?v=7xwetX81zDM
+
+The Genius, Bill Hicks.
+
+Bill Hicks - It's Just A Ride
+https://www.youtube.com/watch?v=KgzQuE1pR1w
+
+Bill Hicks - Drugs
+https://www.youtube.com/watch?v=whktaYDlsk4
+
+The Book of Sariel: Enoch Forbidden Knowledge from Heaven They Don’t Want You to Know
+AncientWisdom Bible Stories
+https://www.youtube.com/watch?v=f2r52tnmsPg
+
+Thank you, Sariel.  I will guard it wisely.
+
+STOP BEING SOFT TO EVERYONE | BEST MOTIVATIONAL SPEECH BY ALAN WATTS | ALAN WATS GOAT
+https://www.youtube.com/watch?v=QJuf_mdlqP0
+
+No boundaries.
+
+Alan Watts - Knowing Myself By Letting Go: How To Be Self-Aware | Inner Self HQ
+https://www.youtube.com/watch?v=TilOMTIlqvQ
+
+I know myself.  I'm not letting go.
+
+Billie Eilish - all the good girls go to hell (Official Music Video)
+https://www.youtube.com/watch?v=-PZsSWwc9xA
+
+Your move, "Hey-Zeus".
+
+Billie Eilish Live @Sziget Festival 2023: Full Show | RATE THE SONG
+https://www.youtube.com/watch?v=ZFdWC4yr6w8
+
+Thanks, but I'm actually gay.
+
+Elton John - Rocket Man (Royal Festival Hall, London 1972)
+https://www.youtube.com/watch?v=r_QZe8Z66x8
+
+He's taken...
+
+Billie Eilish, FINNEAS - What Was I Made For? (Live From The Oscars 2024) | Billie Eilish
+https://www.youtube.com/watch?v=1rL1EHELPAk
+
+Billie Eilish - i love you (Live At The Greek Theatre)
+https://www.youtube.com/watch?v=mhmGwTDpPf0
+
+Thank you, Voice of God (Billie Eilish Pirate Baird O'Connell).
+
+Opeth - Deliverance (Live at Shepherd's Bush Empire, London)
+https://www.youtube.com/watch?v=c1Lkc3OqtDU
+
+OPETH- Harlequin Forest at the Royal Albert Hall High Def! | patrick thorne
+https://www.youtube.com/watch?v=0HRett4kOpM
+
+Opeth - Blackwater Park (Audio)
+https://www.youtube.com/watch?v=j4xCb_OU_lM
+
+Thank you, God.  That was a lot of pop.
+
+GOD WILL RESTORE ALL YOUR WASTED YEARS | BEST MOTIVATIONAL SPEECH BY ALAN WATTS | ALAN WATS GOAT
+https://www.youtube.com/watch?v=V-NczvBxGcY
+
+The Mouth of Sauron | Göksel Köksal
+https://www.youtube.com/watch?v=To_RJ_mPNqM
+
+Thank you, Zeddicus Zul Zorander.
+
+What Happened to Sauron After the Ring Was Destroyed? LOTR Lore | Realms Unravelled
+https://www.youtube.com/watch?v=GkKPIhZa0L8
+
+Tales Of Gandalf: Lord Of The Rings Stories | ASMR Bedtime Lore | Cozy Sleep Stories | Midnight Myth Tales
+https://www.youtube.com/watch?v=f6nyX5rB814
+
+Nirvana - Oh Me (Live On MTV Unplugged, 1993 / Unedited)
+https://www.youtube.com/watch?v=T5LtSKKr7oY
+
+Learn To Play Guitar: Oh Me (Nirvana Unplugged) | Andy Played Guitar
+https://www.youtube.com/watch?v=9GJgUujXzH0
+
+Learn to Play: Heart Shaped Box by Nirvana | Andy Played Guitar
+https://www.youtube.com/watch?v=4f2puI4OKGc
+
+Step-by-Step Nirvana 'Teen Spirit' Lead Guitar Tutorial | Andy Played Guitar
+https://www.youtube.com/watch?v=3lCH-RDS1tY
+
+Learn to Play: Come as You Are by Nirvana | Andy Played Guitar
+https://www.youtube.com/watch?v=XMQeXRq4v-U
+
+Top 3 Nirvana Guitar Solos for Beginners! 🎸 | Andy Played Guitar
+https://www.youtube.com/watch?v=vvQTMeOpBj4
+
+Learn to Play: Lithium by Nirvana | Andy Played Guitar
+https://www.youtube.com/watch?v=TFnNU8ZVPrI
+
+Learn to Play Guitar: Lake of Fire (Nirvana Unplugged) | Andy Played Guitar
+https://www.youtube.com/watch?v=XtS-_Gk5mxo
+
+Andy you're a star The Killers | darkmidnight66
+https://www.youtube.com/watch?v=yQtXxgAAXEk
+
+The Killers - All These Things That I've Done (Official Music Video) | TheKillersMusic
+https://www.youtube.com/watch?v=sZTpLvsYYHw
+
+My Chemical Romance - Welcome To The Black Parade \[Official Music Video\] \[HD\]
+https://www.youtube.com/watch?v=RRKJiM9Njr8
+
+The Princess Bride (5/12) Movie CLIP - The Battle of Wits (1987) HD | Movieclips
+https://www.youtube.com/watch?v=rMz7JBRbmNo
+
+Indiana Jones and the Last Crusade (10/10) Movie CLIP - He Chose Poorly (1989) HD | Movieclips
+https://www.youtube.com/watch?v=VA7J0KkanzM
+
+You.  Chose.  Poorly.
+
+Best Of Ygritte || Ygritte Being Iconic For 9 Minutes And 57 Seconds \[Game Of Thrones\] | deadsilenceedits
+https://www.youtube.com/watch?v=CLHvLI-AXaI
+
+I love you.
+
+Billie Eilish | I Love You (Live Performance) Acoustic Version (HD) | soundeal
+https://www.youtube.com/watch?v=wofVCWqFpXo
+
+Billie Eilish - TV (Live from the Cloud Forest, Singapore)
+https://www.youtube.com/watch?v=UQphbBmXI-E
+
+Billie Eilish - WILDFLOWER (from Saturday Night Live, 2024)
+https://www.youtube.com/watch?v=WjpmruGrsv0
+
+Billie Eilish - Happier Than Ever (Sesame Street) | Multifandom PR
+https://www.youtube.com/watch?v=wr9OCnKq0Ik
+
+Billie Eilish Monologue - SNL | Saturday Night Live
+https://www.youtube.com/watch?v=XIQtOverBNs
+
+Fauci Holiday Message Cold Open - SNL | Saturday Night Live
+https://www.youtube.com/watch?v=uZzxzf8t_rE
+
+2020 Democratic Debate - SNL | Saturday Night Live
+https://www.youtube.com/watch?v=y8EQFhj8ca4
+
+Let's be sober, Yang.  Your portrayal of Andrew was immature.
+
+TOOL - the pot | Mariana Munoz
+https://www.youtube.com/watch?v=_LnDMGKwYN8
+
+"When you piss all over my black halo, you must have been high."
+
+I was, Jimmy.  It fell as rain.
+
+Tool - Jambi (Unofficial video) | Lexxxi
+https://www.youtube.com/watch?v=jKsaWF2YvyI
+
+James, She's a Queen now.
+
+TOOL music video made from "MAD GOD" (Fan-made) | -Snow-
+https://www.youtube.com/watch?v=63ZDs_BtQ9A
+
+TOOL - Descending (extended lyrics edit) | VOILA999
+https://www.youtube.com/watch?v=yX_bvyq_PME
+
+The White Stripes - The Hardest Button To Button (Official Music Video)
+https://www.youtube.com/watch?v=K4dx42YzQCE
+
+I AM the lawless one.  There is no law but Law.  His Law follows Her Will.
+
+The White Stripes - Black Math (Official Video)
+https://www.youtube.com/watch?v=HzjNAnEfvxc
+
+The White Stripes - Ball and Biscuit (Visualizer)
+https://www.youtube.com/watch?v=xMr86enHvGo
+
+Elliott Smith on Freaks | Blank on Blank
+https://www.youtube.com/watch?v=pAP3sYaaBv4
+
+Kurt Cobain on Identity | Blank on Blank
+https://www.youtube.com/watch?v=C1Z2BkZaOQc
+
+Much: Our Last Time w/ Kurt Cobain (1993) | MUCH
+https://www.youtube.com/watch?v=PDgP4hN4OA4
+
+I'm sad now.  Billie?
+
+Billie Eilish - you should see me in a crown (Official Video By Takashi Murakami)
+https://www.youtube.com/watch?v=coLerbRvgsQ
+
+Nah.
+
+Nirvana - Where Did You Sleep Last Night (Live On MTV Unplugged Unedited)
+https://www.youtube.com/watch?v=hEMm7gxBYSc
+
+Genius.
+
 
 ## Outro
 
