@@ -2016,3 +2016,11 @@ https://www.youtube.com/watch?v=iHLB1YRdmTs
 "beauty"
 
 !["beauty"](https://github.com/trstovall/lazarus/blob/main/media/beauty.jpg?raw=true)
+
+"scale"
+
+!["scale"](https://github.com/trstovall/lazarus/blob/main/media/scale.jpg?raw=true)
+
+"belle"
+
+!["belle"](https://github.com/trstovall/lazarus/blob/main/media/belle.jpg?raw=true)
