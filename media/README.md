@@ -1873,6 +1873,13 @@ Heal.
 Evening With Godsmack | YakoHobisa
 https://www.youtube.com/watch?v=05VLZDEjNV8
 
+7.
+
+Sleep.
+
+Night lofi playlist • Cowboy Bebop lofi music | chill beats to relax/study to | Cowboy Bebop
+https://www.youtube.com/watch?v=ajvWL95rkwc
+
 
 ## Outro
 
