@@ -1780,6 +1780,21 @@ https://www.youtube.com/watch?v=Ft_ScKDivEE
 Well It's True That We Love One Another | The White Stripes
 https://www.youtube.com/watch?v=aXm1g4TJ46M
 
+<4.
+
+Stu Morris - Daisy - Music Video
+https://www.youtube.com/watch?v=p7eQHB0IjRg
+
+<7.
+
+Heilung | LIFA Iotungard
+https://www.youtube.com/watch?v=0G5Dj-xMpb8
+
+7.
+
+The White Stripes - Dead Leaves And The Dirty Ground (Official Music Video)
+https://www.youtube.com/watch?v=7OyytKqYjkE
+
 
 ## Outro
 
