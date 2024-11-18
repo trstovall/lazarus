@@ -2152,6 +2152,12 @@ https://www.youtube.com/watch?v=OfiZXqKDR3s
 
 https://lyricstranslate.com/en/wardruna-hertan-english
 
+Calm your Anxiety 🌌 Medieval Chill Vibes | Lofi Music for Sleep/Study/Work - Relaxing Music | Lofi Night Vibes
+https://www.youtube.com/watch?v=YSpT-alKkcQ
+
+I took an oath to fight for Peace.  So did you...All of you.
+
+
 
 ## Outro
 
@@ -2282,3 +2288,51 @@ https://lyricstranslate.com/en/wardruna-hertan-english
 "belle"
 
 !["belle"](https://github.com/trstovall/lazarus/blob/main/media/belle.jpg?raw=true)
+
+"pickle"
+
+!["pickle"](https://github.com/trstovall/lazarus/blob/main/media/pickle.jpg?raw=true)
+
+"Angel"
+
+!["angel"](https://github.com/trstovall/lazarus/blob/main/media/angel.jpg?raw=true)
+
+"Moon 1"
+
+!["moon_1"](https://github.com/trstovall/lazarus/blob/main/media/moon_1.jpg?raw=true)
+
+"Moon 2"
+
+!["moon_2"](https://github.com/trstovall/lazarus/blob/main/media/moon_2.jpg?raw=true)
+
+"Moon 3"
+
+!["moon_3"](https://github.com/trstovall/lazarus/blob/main/media/moon_3.jpg?raw=true)
+
+"God 1"
+
+!["god_1"](https://github.com/trstovall/lazarus/blob/main/media/god_1.jpg?raw=true)
+
+"ajar"
+
+!["ajar"](https://github.com/trstovall/lazarus/blob/main/media/ajar.jpg?raw=true)
+
+"God 2"
+
+!["god_2"](https://github.com/trstovall/lazarus/blob/main/media/god_2.jpg?raw=true)
+
+"vacant"
+
+!["vacant"](https://github.com/trstovall/lazarus/blob/main/media/vacant.jpg?raw=true)
+
+"whisper"
+
+!["whisper"](https://github.com/trstovall/lazarus/blob/main/media/whisper.jpg?raw=true)
+
+"poem"
+
+!["poem"](https://github.com/trstovall/lazarus/blob/main/media/poem.jpg?raw=true)
+
+"respect"
+
+!["respect"](https://github.com/trstovall/lazarus/blob/main/media/respect.jpg?raw=true)
