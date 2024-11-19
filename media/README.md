@@ -2336,3 +2336,7 @@ I took an oath to fight for Peace.  So did you...All of you.
 "respect"
 
 !["respect"](https://github.com/trstovall/lazarus/blob/main/media/respect.jpg?raw=true)
+
+"one"
+
+!["one"](https://github.com/trstovall/lazarus/blob/main/media/one.jpg?raw=true)
