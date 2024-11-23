@@ -2157,6 +2157,691 @@ https://www.youtube.com/watch?v=YSpT-alKkcQ
 
 I took an oath to fight for Peace.  So did you...All of you.
 
+Jesus, Won’t You Guide Me Through This Storm | Anointed Family
+https://www.youtube.com/watch?v=ZCn9C14m5zI
+
+A Boss Approaches - Super Mario 3D World | Jid and Sid
+https://www.youtube.com/watch?v=shJGETBN4ZM
+
+Round Change - Shadows of Evil - Soundtrack | RevolutionGamer
+https://www.youtube.com/watch?v=OGYa9IrOf9s
+
+The War Inside You | Artificially Aware
+https://www.youtube.com/watch?v=8LvR63eGYnA
+
+Katara vs. Hama 🩸 Full Scene | Avatar: The Last Airbender
+https://www.youtube.com/watch?v=cMKAPSKtAos
+
+The Story of Avatar Wan 🔥 Origins of the First Avatar | The Legend of Korra | Avatar: The Last Airbender
+https://www.youtube.com/watch?v=zJU_Bp-Yp1c
+
+You are thinking too much.
+
+The Grades | Gumball | Cartoon Network | The Amazing World of Gumball
+https://www.youtube.com/watch?v=8DjbAInm4eg
+
+Uncle Iroh's Wisest and Most Iconic Moments 🍵 | Avatar: The Last Airbender
+https://www.youtube.com/watch?v=sMdPteXSeew
+
+Trust the universe to give you what you need - Alan Watts | The Motivation Parade
+https://www.youtube.com/watch?v=NgeyFln7RGk
+
+Be gentle, Jesus.  Alan is still learning.
+
+Exploring the Secret Sayings of Jesus: The Lost Gospel of Thomas (FULL VERSION) | Let Us Pray
+https://www.youtube.com/watch?v=_9dFXdkR-Us
+
+Thank you, Jesus.
+
+ALAN What You Seek Is Seeking You | Alan Watts Legacy
+https://www.youtube.com/watch?v=dlgHsFQkHBg
+
+GOD WILL RESTORE ALL YOUR WASTED YEARS | BEST MOTIVATIONAL SPEECH BY ALAN WATTS | ALAN WATS GOAT
+https://www.youtube.com/watch?v=V-NczvBxGcY
+
+The Psychology of The Wounded Healer | Eternalised
+https://www.youtube.com/watch?v=ZMV5Kw1oasM
+
+Seeking the Truth: The Life of Leo Tolstoy | Historical Documentary | Lucasfilm
+https://www.youtube.com/watch?v=shRISLUinWk
+
+I <3 Leo Tolstoy.
+
+TOOL - Vicarious (Official Video)
+https://www.youtube.com/watch?v=h_TUP2vuaDs
+
+TOOL - H. (Official Audio)
+https://www.youtube.com/watch?v=bg8vTSyHFkQ
+
+I remember my darkest days.  They were post-COVID.  The world was full of wickedness and corruption.  My house was godless, lacking respect, lacking forgiveness.  I faced mounting debt.  I lost my job.  My mental illness had been greatly exacerbated by the lockdown.  I couldn't help but plan how to end myself.  I must have shot myself a thousand times.
+
+But God kept reminding me of the horror and Hell I would be leaving as inheritance to my family.  That just made the pain worse.
+
+Then, music played.  It was H. by Tool.  It played only in my mind.  The beauty of the music...  The relatability of the lyrics...  I had to stay alive.
+
+"What's coming through is alive."
+
+"My blood before me begs me, open up my heart again."
+
+So, if you don't like me...blame Tool.
+
+TOOL - Eulogy (Audio)
+https://www.youtube.com/watch?v=6vc9Mz2tfHM
+
+i love you | Billie Eilish
+https://www.youtube.com/watch?v=WiinVuzh4DA
+
+Casting Crowns - Praise You In This Storm (Official Lyric Video)
+https://www.youtube.com/watch?v=0YUGwUgBvTU
+
+MercyMe - "I Can Only Imagine" Official Music Video
+https://www.youtube.com/watch?v=BRPGRdbGHSs
+
+Dash's BIRTH to VILLAIN in Minecraft | Dash
+https://www.youtube.com/watch?v=2cHmHVz3UN0
+
+Ren | "Hi Ren" Reaction | Aerona
+https://www.youtube.com/watch?v=XFEHlYOrRHM
+
+Ren - Hi Ren (Reaction Video) 😭 | Mista 808
+https://www.youtube.com/watch?v=5e0cBIhLodU
+
+Phoebe Bridgers - Motion Sickness (Official Video)
+https://www.youtube.com/watch?v=9sfYpolGCu8
+
+Therapist Reacts to The Patient by TOOL | HeartSupport - Music to Improve Your Mindset
+https://www.youtube.com/watch?v=0M_M2J9C1LA
+
+TOOL - The Patient (Audio)
+https://www.youtube.com/watch?v=rDrhI1GUnNg
+
+Eminem - Cleanin' Out My Closet (Official Video Explicit) \[HD\] | elcoronelGOD
+https://www.youtube.com/watch?v=YtUEUDqxc88
+
+Eminem - When I'm Gone (Official Music Video) | EminemMusic
+https://www.youtube.com/watch?v=1wYNFfgrXTI
+
+Deftones - Passenger [Official Visualizer]
+https://www.youtube.com/watch?v=IjainiB8mk4
+
+Thank you Maynard (King Midas).
+
+Homer Simpson and Peter Griffin stolen car wash scene | G. T Entertainment
+https://www.youtube.com/watch?v=za2IpokyTLg
+
+Thank you, Stewie.
+
+Black Rose Immortal | Opeth
+https://www.youtube.com/watch?v=XcFVGOphsHg
+
+Please Don't Bury Me | John Prine
+https://www.youtube.com/watch?v=nmgYCI3OWw4
+
+The Pretty Reckless - Take Me Down (Official Music Video)
+https://www.youtube.com/watch?v=BQpZv2r8fb4
+
+The Pretty Reckless - Death By Rock And Roll (Lyric Video)
+https://www.youtube.com/watch?v=BX6KILafIS0
+
+Roxy Music - Mother Of Pearl (1974) | Musikladen
+https://www.youtube.com/watch?v=VHexTTOdpXE
+
+Tusk (2018 Remaster) | Fleetwood Mac
+https://www.youtube.com/watch?v=EmuBOfurv3o
+
+The Herald of the End | M S Rock
+https://www.youtube.com/watch?v=HeQnZyLALGE
+
+Joe Nester - Fighting With My Demons (Music Video)
+https://www.youtube.com/watch?v=zJa0UzmRxgY
+
+Garth Brooks - The Dance (Lyrics) | Country Music New
+https://www.youtube.com/watch?v=iYhnFvxTjok
+
+Kanye West - Gold Digger ft. Jamie Foxx
+https://www.youtube.com/watch?v=6vwNcNOTVzY
+
+Gorillaz - On Melancholy Hill (Official Video)
+https://www.youtube.com/watch?v=04mfKJWDSzI
+
+RICK AND MORTY: THE ANIME Trailer (2024) | ONE Media
+https://www.youtube.com/watch?v=DdsijIVrUs4
+
+State of Georgia Vs. Denver Fenton Allen | Rick and Morty | Adult Swim
+https://www.youtube.com/watch?v=7vN_PEmeKb0
+
+Get Schwifty Music Video | Rick and Morty | Adult Swim
+https://www.youtube.com/watch?v=I1188GO4p1E
+
+Rick And Morty | Some Interdimensional Shenanigans | ClipZone: Comedy Callbacks
+https://www.youtube.com/watch?v=BHn1OmhDADc
+
+1 Hour of Dark Magic Music | The Elixir of Life | Peter Gundry | Composer
+https://www.youtube.com/watch?v=QPh1sRaWm8I
+
+Pink Floyd - Alan's Psychedelic Breakfast (1970) \[Full\] | GeorgeHarrison00
+https://www.youtube.com/watch?v=_7pkOZ5n6PQ
+
+Pink Floyd - Keep Talking (PULSE Restored & Re-Edited)
+https://www.youtube.com/watch?v=AVzM6cS1iME
+
+It's sunny and warm, and the angels are flying low.
+
+I sacrificed my eternal spirit for the total restoration of all creation, including Lucifer and the fallen angels, Death, and even God Herself.  That's what a King does.  That's what a Father does.
+
+The number of the beast is 999-911.
+
+Now, let's get to work.
+
+Coldplay - Sparks | Somber Sounds
+https://www.youtube.com/watch?v=Ar48yzjn1PE
+
+TOOL - Prison Sex (Official Video)
+https://www.youtube.com/watch?v=cUPV4OfNlt0
+
+Pink Floyd – Time (Official Audio)
+https://www.youtube.com/watch?v=Qr0-7Ds79zo
+
+David Gilmour - Luck and Strange (Official Music Video)
+https://www.youtube.com/watch?v=It5QFxLjc2k
+
+Romany + David Gilmour - Between Two Points (Right & Wrong Mix) - A Myleslandia Sound + Vision Mix! | Myles Matisse
+https://www.youtube.com/watch?v=i-_l7F7v5WM
+
+David Gilmour - Luck and Strange Tour Rehearsal (Live) | Pink Floyd
+https://www.youtube.com/watch?v=OT7c7yfKFyQ
+
+P̲ink F̲lo̲yd - The D̲ark S̲ide of the Mo̲o̲n (Full Album 1973) | Hueman Instrumentality
+https://www.youtube.com/watch?v=69VMx9Kd3tQ
+
+David Gilmour - Between Two Points (with Romany Gilmour) [Tour Rehearsal]
+https://www.youtube.com/watch?v=o_QTaUuU8F4
+
+David Gilmour - Breathe (In The Air)/Time [Tour Rehearsal]
+https://www.youtube.com/watch?v=E3sP6AXKuYg
+
+Pink Floyd - Wish You Were Here (Full album with animation clips) | Jim F.
+https://www.youtube.com/watch?v=7fJ9m7aaiYA
+
+!w Syd Barrett
+https://en.wikipedia.org/wiki/Syd_Barrett
+https://en.wikipedia.org/wiki/Stars_(British_band)
+
+Rick Vs. God | Rick and Morty | adult swim | Adult Swim
+https://www.youtube.com/watch?v=-edlZpH6t0A
+
+Rick and Morty x PlayStation | God of War Ragnarök | Adult Swim
+https://www.youtube.com/watch?v=p_bH42OiUo4
+
+Rick Outsmarts the Devil | Rick and Morty | E4
+https://www.youtube.com/watch?v=lN5ZZ64P4PM
+
+Rick and Morty | Funniest Moments #1 | Animation Vault
+https://www.youtube.com/watch?v=VBZ-_ICc4dQ
+
+My favorite restaurant is Waffle House.  You go in and get a glass of water and scattered hashbrowns all the way, except the chili.  Then, you meet wonderful people.  Delicious.
+
+One time, I met a guy from Mexico on his way to Canada.  He told me I would like the mountains in the spring and that I should visit the villages there.  He had life figured out.
+
+Yo hablo español muy poquito.
+
+You know, if the people of Israel would truly turn to God instead of Baal and the treasure of Baal, their Land would be a lush paradise.
+
+Rome scattered the people of Israel for a reason.
+
+The Third Reich slaughtered the meek for a reason.
+
+The world is at war for a reason.
+
+Some might say that El is anti-Semitic.
+
+Rick & Morty Out of Context for 10 Minutes Part 2 | LOL Context
+https://www.youtube.com/watch?v=rrsfzPoYhpc
+
+Rick & Morty Out of Context for 10 Minutes Part 3 | LOL Context
+https://www.youtube.com/watch?v=MqljoVC5k6E
+
+Rick and Morty Season 4 Out of Context | get schwifty
+https://www.youtube.com/watch?v=b7ImuvvrrU8
+
+Watchmen Explained (original comic) | Alt Shift X
+https://www.youtube.com/watch?v=wJmg0uc3CjY
+
+William Blake: The Ancient of Days: Great Art Explained
+https://www.youtube.com/watch?v=grxnTX9jm4E
+
+Halloween Special: Edgar Allan Poe | Overly Sarcastic Productions
+https://www.youtube.com/watch?v=_KZqzk7p2uY
+
+THE TWILIGHT ZONE | The GREATEST Twist In All Of HORROR? | PolterGibbst
+https://www.youtube.com/watch?v=pyowIvHraXM
+
+1408 | A Horror Movie So INSANE They Changed The ENDING.. | PolterGibbst
+https://www.youtube.com/watch?v=pWHySvs2sl4
+
+Godsmack - Awake (Official Music Video)
+https://www.youtube.com/watch?v=opU1urLhw50
+
+Annabel Lee | tigerarmy
+https://www.youtube.com/watch?v=CcVfJ3uugI4
+
+Annabel Lee by Edgar Allan Poe | Powerful Life Poetry | Blue Sky Motivation
+https://www.youtube.com/watch?v=Y9ksrQ0TQJQ
+
+Annabelle Lee | Sarah Jarosz
+https://www.youtube.com/watch?v=d-dr7CNNvng
+
+Eddie Vedder - Guaranteed (Into The Wild) | Gláucio Dutra
+https://www.youtube.com/watch?v=Mwx3RvDWvDM
+
+Billie Eilish - BIRDS OF A FEATHER (Official Music Video)
+https://www.youtube.com/watch?v=V9PVRfjEBTI
+
+Billie Eilish - Therefore I Am (Official Music Video)
+https://www.youtube.com/watch?v=RUQl6YcMalg
+
+Bill Burr - You People Are All The Same (Legendado) | Comédia com Legenda
+https://www.youtube.com/watch?v=nHnSBGPqLPE
+
+Dave Chappelle For What Its Worth | Jorge Fernández Gonzalo
+https://www.youtube.com/watch?v=jM_BQYeiD5Y
+
+Britney Spears - Perfume (Official Video)
+https://www.youtube.com/watch?v=_rxgp7TJhUE
+
+Eminem, Taylor Swift - Fortnight (feat. Post Malone) DJ Møkdust Remix 2024 | DJ Møkdust
+https://www.youtube.com/watch?v=mXosviSQ9MA
+
+Johnny Cash - God's Gonna Cut You Down (Official Music Video)
+https://www.youtube.com/watch?v=eJlN9jdQFSc
+
+God's gonna cut you down.
+
+Sin is not an act.  It is a state of being.
+
+Harry Chapin ~ Empty (Heads & Tales) | TheSoundofU
+https://www.youtube.com/watch?v=PIutKJT-1Zs
+
+Perfume The Story of a Murderer (2006) Theatrical Trailer | Amblin
+https://www.youtube.com/watch?v=M7ShUL1qwNQ
+
+Al Pacino's Iconic Final Speech (Full Scene) | Scent of a Woman | Critic Picks
+https://www.youtube.com/watch?v=p9DQSnik1mw
+
+THIS WILL CHANGE YOU! Navy Seal Admiral William H. McRaven [MOTIVATIONAL SPEECH] | Mulligan Brothers Interviews
+https://www.youtube.com/watch?v=mMEq0r97T_k
+
+Guns N’ Roses Civil War Music Video 1991 | Guni Guni
+https://www.youtube.com/watch?v=zOaNSVFX5u0
+
+The Postal Service - Clark Gable | Sub Pop
+https://www.youtube.com/watch?v=thwYQeZzpqE
+
+The Postal Service - Nothing Better | Sub Pop
+https://www.youtube.com/watch?v=yiFLQklABUg
+
+The Postal Service - Such Great Heights [OFFICIAL VIDEO] | Sub Pop
+https://www.youtube.com/watch?v=0wrsZog8qXg
+
+The Postal Service - The District Sleeps Alone Tonight [OFFICIAL VIDEO] | Sub Pop
+https://www.youtube.com/watch?v=xUIBnmdJJ50
+
+Natural Anthem (Remastered) | PostalServiceBand
+https://www.youtube.com/watch?v=J_7GOST_w3c
+
+I am Baal.  Who (Do You Think) is the Whore of Babylon?
+
+My Jolly Sailor Bold - Ashley Serena
+https://www.youtube.com/watch?v=tPLodwT58nE
+
+Weezer - Say It Ain't So (Official Video) | weezer
+https://www.youtube.com/watch?v=ENXvZ9YRjbo
+
+The Killers - When You Were Young (Official Music Video) | TheKillersMusic
+https://www.youtube.com/watch?v=ff0oWESdmH0
+
+Nine Inch Nails - Closer (Director's Cut)
+https://www.youtube.com/watch?v=PTFwQP86BRs
+
+Rammstein - Deutschland (Official Video) | Rammstein Official
+https://www.youtube.com/watch?v=NeQM1c-XCDc
+
+Rammstein - Mein Land (Official Video) | Rammstein Official
+https://www.youtube.com/watch?v=6iaxDxHUWP8
+
+I bless mein land with mein piss.
+
+Ghost - Dance Macabre (Official Music Video)
+https://www.youtube.com/watch?v=7Gr63DiEUxw
+
+Hellraiser (30th Anniversary Edition - Official Animated Video) | Ozzy Osbourne
+https://www.youtube.com/watch?v=zw79RVnlCb0
+
+Ozzy Osbourne - Straight to Hell (Official Music Video)
+https://www.youtube.com/watch?v=kSRNrVjISRQ
+
+George Thorogood & The Destroyers - Bad To The Bone
+https://www.youtube.com/watch?v=IyhJ69mD7xI
+
+Galadriel vs Sauron Blu-Ray - The Hobbit: The Battle of the Five Armies | Mert Gök
+https://www.youtube.com/watch?v=NLhypaRifcE
+
+Jerusalem has come | 8K Ultra HD Cinematic | Kingdom of Heaven | Noot Noot
+https://www.youtube.com/watch?v=M1wtXQslQUk
+
+Arya and Melisandre | What do we say to the God of Death? | Muqaddimah
+https://www.youtube.com/watch?v=-7-9Psp8oWw
+
+"Not today."
+
+Melisandre meets Daenerys Targaryen | QraY
+https://www.youtube.com/watch?v=zoTn9enVtAM
+
+Jon Snow & Daenerys Targaryen Meet for the First Time | Game of Thrones | HBO
+https://www.youtube.com/watch?v=tZvy0jfAu38
+
+Jon Snow’s Journey: From Bastard to Legend | GoT Tribute 4K UHD | WatchHaven
+https://www.youtube.com/watch?v=5T_11umVLdU
+
+LOTR The Two Towers - Extended Edition - Sons of the Steward | EgalmothOfGondolin01
+https://www.youtube.com/watch?v=HX3gA9oP24c
+
+Epic Cinematic Music: Blood Moon Rising | Epic Cinematic Music Channel 
+https://www.youtube.com/watch?v=EY6QssJG2FQ
+
+𝘖𝘳𝘤𝘩𝘦𝘴𝘵𝘳𝘢𝘭 𝘮𝘶𝘴𝘪𝘤 𝘵𝘩𝘢𝘵 𝘣𝘦𝘨𝘪𝘯𝘴 𝘴𝘰𝘧𝘵𝘭𝘺 𝘵𝘩𝘦𝘯 𝘣𝘦𝘤𝘰𝘮𝘦𝘴 𝐌𝐚𝐬𝐬𝐢𝐯𝐞𝐥𝐲 𝐄𝐩𝐢𝐜 - 𝘐𝘯𝘧𝘳𝘢 (𝘍𝘶𝘭𝘭 𝘔𝘪𝘹) | Secession Studios
+https://www.youtube.com/watch?v=yZhotrDZSzc
+
+Your Song - Moulin Rouge [HD1080i & Subtitles] | MoH_NY
+https://www.youtube.com/watch?v=D9soYPNDlq4
+
+Weezer - Buddy Holly (Official Music Video) | weezer
+https://www.youtube.com/watch?v=kemivUKb4f4
+
+Hans Zimmer - Hoist The Colours - Pirates of the Caribbean: At World's End | Marek Marynistyka
+https://www.youtube.com/watch?v=lNRjt4rCymM
+
+Les Misérables | Look Down (Full Hugh Jackman Performance) | Universal Pictures
+https://www.youtube.com/watch?v=pBbnvOqVNyM
+
+\39. Every day/A heart full of love (reprise) - Les Misérables | LesMiserables MovieSoundtrack
+https://www.youtube.com/watch?v=0f4RC58mgPU
+
+Les Miserables - Samantha Barks - On My Own (lyrics) (Full Verison) | dunnousewutname
+https://www.youtube.com/watch?v=aQnJ4mIfT0c
+
+Les Misérables | Do You Hear the People Sing? | Universal Pictures
+https://www.youtube.com/watch?v=1q82twrdr0U
+
+A Perfect Circle - Counting Bodies Like Sheep To The Rhythms Of The War Drums
+https://www.youtube.com/watch?v=giaZnIr-faM
+
+Passive | A Perfect Circle
+https://www.youtube.com/watch?v=oWkHQQpzuF8
+
+Behind the Hacks: The Origins of Anonymous | Cyberwar | VICE News
+https://www.youtube.com/watch?v=ggGmxDq2HBA
+
+Hack me.
+
+She Recognizes Death (Incredible Acting) | Meet Joe Black | Popcorn Picks
+https://www.youtube.com/watch?v=guGt8TTNxSQ
+
+In Time/Best scene/Andrew Niccol/Justin Timberlake/Will Salas/Amanda Seyfried/Vincent Kartheiser | Eli D
+https://www.youtube.com/watch?v=_V-0YdWqqxw
+
+Karen Smith being iconic for 7 minutes straight.. | FUNNY FAILS
+https://www.youtube.com/watch?v=bSScUJ0-AV4
+
+Most creative movie scenes from Anon (2018) | Most Creative Movie Scenes
+https://www.youtube.com/watch?v=zB5z_bOkjAw
+
+CONSTANTINE (2005) | Lucifer Full Scene | Michael Mafrici
+https://www.youtube.com/watch?v=j_gFjrO8Mck
+
+The Star of Earendil | Manuel Schulze
+https://www.youtube.com/watch?v=YcOl7wWa1pE
+
+Anon, Final Scene. | i L L u S i o n
+https://www.youtube.com/watch?v=TxxyVuPJ3sk
+
+Harry Potter Is Alive - Harry Potter And The Deathly Hallows Part 2 | FanHub Emma Watson
+https://www.youtube.com/watch?v=iGtu1Clovig
+
+Harry Potter and the Deathly Hallows part 2 - King's Cross | TheMagicHannes
+https://www.youtube.com/watch?v=KL0CH-YC3lo
+
+Sweeney Todd (2007) Epiphany (With Lirycs) | Camila DS
+https://www.youtube.com/watch?v=_jcLbfUZT9A
+
+The Pretty Reckless - Going To Hell (Official Music Video)
+https://www.youtube.com/watch?v=bmtbg5b7_Aw
+
+jfan - Harmonic Midnight | SYMPHONIC METAL | MELODIC
+https://www.youtube.com/watch?v=GbMg79n7Ia8
+
+When Uncle Iroh Tried To Tell Us Something | Iroh Wisdom | UpgradeArc
+https://www.youtube.com/watch?v=WCQEhe3TYTI
+
+Joel Salatin Accepts USDA Position! | Heart & Harvest Homestead 
+https://www.youtube.com/watch?v=1SON-lXnAfw
+
+Joel Salatin: Working with Your Kids So They'll Work with You (2023) | The Homestead Festival
+https://www.youtube.com/watch?v=x4JZYaHWAHg
+
+Dr. Temple Grandin & Joel Salatin: Q & A (2023) | The Homestead Festival
+https://www.youtube.com/watch?v=3UFiarngjzY
+
+Temple Grandin on her new film and different learning styles | Rocky Mountain PBS
+https://www.youtube.com/watch?v=RKWeueinMHI
+
+“Einstein would probably be in an autism program today” | Temple Grandin for Big Think+ | Big Think
+https://www.youtube.com/watch?v=Svv7egD4hpk
+
+7 Signs of Undiagnosed Autism in Adults | Autism From The Inside
+https://www.youtube.com/watch?v=qwu3iZSgf10
+
+How Autism Feels, From the Inside | Op-Docs | The New York Times
+https://www.youtube.com/watch?v=qDXo83OtzgE
+
+It Will Give You Goosebumps - Alan Watts On The Eternal Now | T&H - Inspiration & Motivation
+https://www.youtube.com/watch?v=IheL31luaEs
+
+Don't just live in the eternal now.  Live in the eternal ALL.
+
+Wardruna - Skugge (Shadow), Official Lyric video | wardruna
+https://www.youtube.com/watch?v=CDMIbVFCz7A
+
+Bilbo's Last Song | Manuel Schulze
+https://www.youtube.com/watch?v=xaVsZsX43lQ
+
+SEEK GOD FIRST IN EVERY SITUATION | BEST MOTIVATIONAL SPEECH BY ALAN WATTS | ALAN WATS GOAT
+https://www.youtube.com/watch?v=f3XwfuvUYBA
+
+Heilung - Traust (Unofficial Music Video) | LITVINOV
+https://www.youtube.com/watch?v=y6Yahh_I7IE
+
+A 97-Year-Old Philosopher Faces His Own Death | The Atlantic
+https://www.youtube.com/watch?v=qX6NztnPU-4
+
+The greatest thing you'll ever learn is just to love and be loved in return. - Moulin Rouge | cuccithebest
+https://www.youtube.com/watch?v=5iC7_1e0IBI
+
+the desire to be loved | Sisyphus 55
+https://www.youtube.com/watch?v=00s2jpgU6ic
+
+do you want to be loved or do you want to be yourself? | Sisyphus 55
+https://www.youtube.com/watch?v=3Y81L_CUV3M
+
+Leadbelly - Where Did you Sleep Last Night | todd131981
+https://www.youtube.com/watch?v=PsfcUZBMSSg
+
+Meat Puppets - Lake of Fire | Peter Ranken
+https://www.youtube.com/watch?v=9jPglNrZhkA
+
+it's never too late | bojack horseman | AKAMAI
+https://www.youtube.com/watch?v=dTat8zg9puE
+
+When Cartoon Characters Gave Us a Reality Check | Cartoon Wisdom | Mind Forge
+https://www.youtube.com/watch?v=S-dJpaM8DFo
+
+What They Tried To Tell Us.. | Movie Quotes | Inspirophoria
+https://www.youtube.com/watch?v=4xa_W2yB-XM
+
+Sword In The Stone | Star Wars | Darth Vader Goes To Disneyland | Disney Parks
+https://www.youtube.com/watch?v=z5QCSsGD-bY
+
+'Before The Dark Times' | MrRazNZ
+https://www.youtube.com/watch?v=WytHmlDWEgk
+
+Anakin Skywalker | VADER | Ilia TS
+https://www.youtube.com/watch?v=63EAJJakvEU
+
+The Greatest Teacher Failure is | Heroes Fan Productions
+https://www.youtube.com/watch?v=1kjEnDj7K30
+
+Star Wars | Darth Vader | Ilia TS
+https://www.youtube.com/watch?v=DVtNve4qySA
+
+STAR WARS | I'M WHAT REMAINS (4K) | seasonsVFX
+https://www.youtube.com/watch?v=jwHtU4Zbzu0
+
+The Pretty Reckless - Only Love Can Save Me Now \[Unplugged\]
+https://www.youtube.com/watch?v=aEWsnG51Ea4
+
+The Dark Knight Rises - Blake Knows Bruce's Secret (HD) | JokDon
+https://www.youtube.com/watch?v=bfqYdon7hSw
+
+"...I Won't Bury You.." Best Scene - The Dark Knight Rises - HD | CoolCoolMovies
+https://www.youtube.com/watch?v=C3DScYKzw80
+
+Selina Kyle | Bruce confesses + BatCat's second kiss [Gotham 3x05] 4 / 4 | gothamcatscenes
+https://www.youtube.com/watch?v=8IwmhePOaL8
+
+I, Robot | FoxConnect
+https://www.youtube.com/watch?v=05bGPiyM4jg
+
+Interrogation of Mr. Anderson | The Matrix [Open Matte] | Flashback FM
+https://www.youtube.com/watch?v=uXEUW792etk
+
+Doctor Strange (2016) - 'Bargain With The Dark Lord' | Movie Clip HD | Marvel Universe Entertainment
+https://www.youtube.com/watch?v=KD_XesvG7AM
+
+Thor Ragnarok (2017) || RARE Deleted Scene | Hela Confronts Odin | HD | Zylice Liddell
+https://www.youtube.com/watch?v=qCm3xxK-o3c
+
+AVENGER INFINITY WAR ALL DELETED SCENES!! | Movie Collection
+https://www.youtube.com/watch?v=PC7KrvZ6Dus
+
+Watchmen - The Smartest Man "on the Cinder" | IDidIt35MinutesAgo
+https://www.youtube.com/watch?v=WAST139RPCo
+
+IMAX. Comedian vs Ozymandias | Watchmen \[+Subtitles\] | Flashback FM
+https://www.youtube.com/watch?v=5_pBVXfReA4
+
+The Most Insane Weapon You Never Heard About | Kurzgesagt – In a Nutshell
+https://www.youtube.com/watch?v=E55uSCO5D2w
+
+What Happens AFTER Nuclear War? | Kurzgesagt – In a Nutshell
+https://www.youtube.com/watch?v=LrIRuqr_Ozg
+
+Poison Ivy dances at party | Batman & Robin | Flashback FM
+https://www.youtube.com/watch?v=0txnukioagY
+
+Pulp Fiction | 'I Want To Dance' (HD) - Uma Thurman, John Travolta | MIRAMAX
+https://www.youtube.com/watch?v=o5qXCzknxn8
+
+Pulp Fiction Mia Overdose | Holy wood
+https://www.youtube.com/watch?v=KP0g4kXAj0c
+
+Batman interrogates the Joker | felipe.flores1
+https://www.youtube.com/watch?v=RWgyKDfFC_U
+
+Best Joker Scenes in The Dark Knight | Max
+https://www.youtube.com/watch?v=lNLmk7CPtOw
+
+The Coin Toss | No Country for Old Men | Max
+https://www.youtube.com/watch?v=ZY0DG8rUnCA
+
+Ragnar and The Seer - The death of Ragnar Lothbrok | Robin D
+https://www.youtube.com/watch?v=QIPiLp9NwyY
+
+Vikings - Floki Kills Athelstan [Athelstan Death] \[HD\]
+https://www.youtube.com/watch?v=01IlO_LNjtE
+
+TOOL "DISGUSTIPATED" | Lou Zeffer
+https://www.youtube.com/watch?v=-oot1d4kTi4
+
+H. - Tool | Holandrach
+https://www.youtube.com/watch?v=56_imRoi1mw
+
+TOOL - Invincible Music Video @TOOLmusic | Jaxson Conklin (Elmo - Brawl Stars)
+https://www.youtube.com/watch?v=eCp6bUmEOZM
+
+Billie Eilish Live @Sziget Festival 2023: Full Show | RATE THE SONG
+https://www.youtube.com/watch?v=ZFdWC4yr6w8
+
+Weezer - Beverly Hills
+https://www.youtube.com/watch?v=HL_WvOly7mY
+
+The Pretty Reckless - Make Me Wanna Die
+https://www.youtube.com/watch?v=txBfhpm1jI0
+
+Billie Eilish | I Love You (Live Performance) Acoustic Version (HD) | soundeal
+https://www.youtube.com/watch?v=wofVCWqFpXo
+
+Billie Eilish - What Was I Made For? (from the motion picture "Barbie") [live Oscars 2024] | Kaz
+https://www.youtube.com/watch?v=D1NXQDxVti4
+
+Billie Eilish - when the party’s over (Toronto N1 2024) | ShakyShorty
+https://www.youtube.com/watch?v=plMevc9s8So
+
+The Pretty Reckless - "Witches Burn" (Live In Spain) - Bat Performance
+https://www.youtube.com/watch?v=dUh-SO9o998
+
+Dark Side Of The Rainbow (The Great Gig In The Sky - Money) | AluzinArte Cine de Arte
+https://www.youtube.com/watch?v=9Dpo0IfNP44
+
+Twister (1996) - Best Scene | SeanyGee
+https://www.youtube.com/watch?v=VvkvYflz6q4
+
+Robin Williams' Speech | Good Will Hunting | Max
+https://www.youtube.com/watch?v=8GY3sO47YYo
+
+
+
+
+
+
+
+
+
+
+
+
+
+Wardruna and Aurora - Helvegen (Live) | wardruna
+https://www.youtube.com/watch?v=FnkTuHP9q3o
+
+I had a dream.  I was the Batman.  I controlled the thoughts and emotions of those around me.  To avoid that tyranny, I had to leave everyone and everything I loved.  I had to leave the light, and become...the darkness.
+
+TOOL - Crawl Away (Audio)
+https://www.youtube.com/watch?v=WuUM2mz8Q_s
+
+WARDRUNA - Helvegen | Cover by The Pagan Minstrel | The Pagan Minstrel
+https://www.youtube.com/watch?v=4LRATGf4RFk
+
+Davy Jones | Heart of Pain (POTC) | Escathon Edits
+https://www.youtube.com/watch?v=wiZeMc6xW3E
+
+We Must See It Before It’s Too Late - Robin Williams' Powerful Message For Humanity | T&H - Inspiration & Motivation
+https://www.youtube.com/watch?v=MvyKiDRzUAg
+
+Forgive | Bible Unleashed
+https://www.youtube.com/watch?v=1a6SvVPzc2A
+
+Rest Here After a Long Day🌌 Medieval Chill Vibes | Lofi Music for Sleep/Study/Work - Relaxing Music | Lofi Night Vibes
+https://www.youtube.com/watch?v=Z-idHwrlr5Q
 
 
 ## Outro
@@ -2331,7 +3016,7 @@ I took an oath to fight for Peace.  So did you...All of you.
 
 "poem"
 
-!["poem"](https://github.com/trstovall/lazarus/blob/main/media/poem.jpg?raw=true)
+!["poem"](https://github.com/trstovall/lazarus/blob/main/media/poem.png?raw=true)
 
 "respect"
 
@@ -2340,3 +3025,11 @@ I took an oath to fight for Peace.  So did you...All of you.
 "one"
 
 !["one"](https://github.com/trstovall/lazarus/blob/main/media/one.jpg?raw=true)
+
+"echo"
+
+!["echo"](https://github.com/trstovall/lazarus/blob/main/media/echo.jpg?raw=true)
+
+"answer"
+
+!["answer"](https://github.com/trstovall/lazarus/blob/main/media/answer.png?raw=true)
