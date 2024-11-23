@@ -3033,3 +3033,11 @@ https://www.youtube.com/watch?v=Z-idHwrlr5Q
 "answer"
 
 !["answer"](https://github.com/trstovall/lazarus/blob/main/media/answer.png?raw=true)
+
+"partners"
+
+!["partners"](https://github.com/trstovall/lazarus/blob/main/media/partners.jpg?raw=true)
+
+"God 3"
+
+!["god_3"](https://github.com/trstovall/lazarus/blob/main/media/god_3.jpg?raw=true)
