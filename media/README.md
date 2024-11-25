@@ -3041,3 +3041,7 @@ https://www.youtube.com/watch?v=Z-idHwrlr5Q
 "God 3"
 
 !["god_3"](https://github.com/trstovall/lazarus/blob/main/media/god_3.jpg?raw=true)
+
+"Silence"
+
+!["silence"](https://github.com/trstovall/lazarus/blob/main/media/silence.jpg?raw=true)
