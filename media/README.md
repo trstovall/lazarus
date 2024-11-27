@@ -2808,8 +2808,23 @@ https://www.youtube.com/watch?v=VvkvYflz6q4
 Robin Williams' Speech | Good Will Hunting | Max
 https://www.youtube.com/watch?v=8GY3sO47YYo
 
+ALL SPRUNKI COUPLES UNLOCKED! (Kiss Mod)
+https://www.youtube.com/watch?v=royJT3ewg3A
 
+TOOL - Ænima (Full Album HQ).
+https://www.youtube.com/watch?v=BC6B4G3za9M
 
+The Queen Of The Undead: Beautiful Vocal Dark Fantasy Music for Deep Relaxation and Sleep | Eternal Voyage
+https://www.youtube.com/watch?v=6TJS2qZx3_E
+
+Who are the Gods of Death from Mythology and Folklore? | Pantheon Mythology
+https://youtu.be/VaiJzokOG1g?si=daJSdYUsz1CZJuaP
+
+From "The Work of the Devil" to Fast Food French Fries: The Wild Story of Potatoes | OTR Food & History
+https://www.youtube.com/watch?v=UjVJqw1AUag
+
+RUSTLE of the NIGHT | dark ambient | Dead Shamans
+https://www.youtube.com/watch?v=cQIHOQhEQq0
 
 
 
