@@ -2909,6 +2909,37 @@ Conditional love is rational.  Therein lies His beauty.
 
 Unconditional love is transcendental.  Therein lies Her perfection.
 
+drivers license | Olivia Rodrigo
+https://www.youtube.com/watch?v=tNJhkrpLGT8
+
+Billie Eilish - Falling For Ghost (Official Audio) | HTWO
+https://www.youtube.com/watch?v=k4UkIgaceIk
+
+Billie Eilish - WILDFLOWER (Music Video) | GLYTCH
+https://www.youtube.com/watch?v=wKBYEhTgoHU
+
+Adele - Set Fire To The Rain (Live at The Royal Albert Hall)
+https://www.youtube.com/watch?v=Ri7-vnrJD3k
+
+Amy Winehouse - Back To Black
+https://www.youtube.com/watch?v=TJAfLE39ZZ8
+
+I'm sorry Amy.  I don't know.  I guess I will let Christ decide.
+
+Hitler vs Vader 3. Epic Rap Battles of History | ERB
+https://www.youtube.com/watch?v=BpqNvskS_kM
+
+Eminem - Rap God (Explicit) | EminemMusic
+https://www.youtube.com/watch?v=XbGs_qK2PQA
+
+Ren Ft. Kit - Slaughter House | Ren
+https://www.youtube.com/watch?v=_fTylzY3RsU
+
+Thank you, Ren (Shakespeare).
+
+Relaxing Whiskey Blues Music | Best of Slow Blues/Rock Ballads Songs | JAZZ & BLUES
+https://www.youtube.com/watch?v=VnjdikpgR0E
+
 Why I Am Not a Christian by Bertrand Russell (1927) | Religion, Atheism, Science
 https://www.youtube.com/watch?v=NdDYvvevLZk
 
