@@ -2943,6 +2943,8 @@ https://www.youtube.com/watch?v=VnjdikpgR0E
 Why I Am Not a Christian by Bertrand Russell (1927) | Religion, Atheism, Science
 https://www.youtube.com/watch?v=NdDYvvevLZk
 
+The proton is the ego of the hydrogen atom.
+
 Isaac Asimov talks about superstition, religion and why he teaches rationality | mrnobodysprincess
 https://www.youtube.com/watch?v=VSxMZBp-2Zs
 
