@@ -2987,6 +2987,9 @@ https://www.youtube.com/watch?v=6NXnxTNIWkc
 Guns N' Roses - November Rain
 https://www.youtube.com/watch?v=8SbUC-UaAxE
 
+Where Are You Christmas by Taylor Momsen (with lyrics) | TvFilmVideos
+https://www.youtube.com/watch?v=eDAfUiVYZDw
+
 
 ## Outro
 
