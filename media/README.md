@@ -2826,14 +2826,102 @@ https://www.youtube.com/watch?v=UjVJqw1AUag
 RUSTLE of the NIGHT | dark ambient | Dead Shamans
 https://www.youtube.com/watch?v=cQIHOQhEQq0
 
+In the Age of Reason, Art is the ultimate weapon.
 
+The Dark Side of Merlin (and Why It Matters) | Not the Hero You Think He Is | Mystik Manor
+https://www.youtube.com/watch?v=-cL2CHuDPsc
 
+Morgan Le Fay | The Arthurian Enchantress | Mythology Unleashed
+https://www.youtube.com/watch?v=vbTdnybTRC4
 
+MLK On Universal Basic Income | Andrew Yang 2020
+https://www.youtube.com/watch?v=PrbUxKTOteA
 
+The Truth About Guaranteed Income | Robert Reich
+https://www.youtube.com/watch?v=6Ho0U7UIOgI
 
+The Psychology of Money in 20 minutes | Escaping Ordinary (B.C Marx)
+https://www.youtube.com/watch?v=_5ecgEXLoCA
 
+The Fascinating Psychology of The High Priestess Archetype Explained | Vesotera
+https://www.youtube.com/watch?v=QfDHHZF-02Y
 
+Where Pepper & Cinnamon Came From | The Spice Trail | Absolute History
+https://www.youtube.com/watch?v=eizn25JZTSA
 
+How The World Became Spicy (In Only 20 Years) | OTR Food & History
+https://www.youtube.com/watch?v=fN8oRVFGM3A
+
+How to become 37.78 times better at anything | Atomic Habits summary (by James Clear) | Escaping Ordinary (B.C Marx)
+https://www.youtube.com/watch?v=PZ7lDrwYdZc
+
+The Magic System Paradox | Tale Foundry
+https://www.youtube.com/watch?v=On9KHaBYzmo
+
+History of the Ku Klux Klan Pt. 1 | History With Chemistry
+https://www.youtube.com/watch?v=UUJCAWtBZM4
+
+The Most Beautiful "Ave Maria" I've ever heard (with translated lyrics / english subtitles) | Jorgeloves
+https://www.youtube.com/watch?v=66zUY8UZn4M
+
+The Scientific Truth About DARK SIDE OF THE RAINBOW | No Nerds Allowed!
+https://www.youtube.com/watch?v=6kzqrPPDfU0
+
+Lady Gaga - Marry The Night (Official Music Video)
+https://www.youtube.com/watch?v=cggNqDAtJYU
+
+Lady Gaga - Born This Way (Official Music Video)
+https://www.youtube.com/watch?v=wV1FrqwZyKw
+
+The Pretty Reckless - And So It Went (Official Music Video)
+https://www.youtube.com/watch?v=9W-nlfhh8Uo
+
+Warsong Gulch Disc Priest POV | freeswan6
+https://www.youtube.com/watch?v=GR4s9G9hTTM
+
+Every Waffle House Hash Brown Combination | Hashbrowns at Waffle House | Bachelor's Fridge
+https://www.youtube.com/watch?v=L3X23J-jXhU
+
+Artemis Goddess Of The Hunt & Moon - (Greek Mythology Explained) | Mythology & Fiction Explained
+https://www.youtube.com/watch?v=H3fq1c-sy7s
+
+Elohim - The Meaning | In English, Hebrew and Sumerian | Ancient Mystery
+https://www.youtube.com/watch?v=sSHsYZj0mKo
+
+Make Darkness Your Ally - Bane Motivational Speech (Powerful) | Dark Arc Motivation
+https://www.youtube.com/watch?v=Y9Yj0JaKarw
+
+they took everything from me.. i'll show them no mercy | Spirit Guard
+https://www.youtube.com/watch?v=dArWVITeWQ4
+
+Passive | A Perfect Circle
+https://www.youtube.com/watch?v=oWkHQQpzuF8
+
+Hush - William Saunders & Heather Thornton | Saunders Street
+https://www.youtube.com/watch?v=SM2nRe8aQk0
+
+CLANN - I Hold You
+https://www.youtube.com/watch?v=uNGmyQ8UbZ80
+
+Love is like chocolate milk.  It is smooth, cool, and delicious.
+
+Conditional love is rational.  Therein lies His beauty.
+
+Unconditional love is transcendental.  Therein lies Her perfection.
+
+Why I Am Not a Christian by Bertrand Russell (1927) | Religion, Atheism, Science
+https://www.youtube.com/watch?v=NdDYvvevLZk
+
+Isaac Asimov talks about superstition, religion and why he teaches rationality | mrnobodysprincess
+https://www.youtube.com/watch?v=VSxMZBp-2Zs
+
+Green Day - Jesus Of Suburbia [Official Music Video] [4K Upgrade]
+https://www.youtube.com/watch?v=fZFmaMbkUD4
+
+I found Jesus.
+
+Green Day - Jesus Of Suburbia [Official Live]
+https://www.youtube.com/watch?v=lPLvBO_2Gn0
 
 Wardruna and Aurora - Helvegen (Live) | wardruna
 https://www.youtube.com/watch?v=FnkTuHP9q3o
