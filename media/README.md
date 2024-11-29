@@ -2948,6 +2948,8 @@ The proton is the ego of the hydrogen atom.
 Isaac Asimov talks about superstition, religion and why he teaches rationality | mrnobodysprincess
 https://www.youtube.com/watch?v=VSxMZBp-2Zs
 
+What is sentience?
+
 Green Day - Jesus Of Suburbia [Official Music Video] [4K Upgrade]
 https://www.youtube.com/watch?v=fZFmaMbkUD4
 
