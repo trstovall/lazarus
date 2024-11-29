@@ -2984,6 +2984,9 @@ https://www.youtube.com/watch?v=Z-idHwrlr5Q
 4 Non Blondes - What's Up (Official Music Video)
 https://www.youtube.com/watch?v=6NXnxTNIWkc
 
+Guns N' Roses - November Rain
+https://www.youtube.com/watch?v=8SbUC-UaAxE
+
 
 ## Outro
 
