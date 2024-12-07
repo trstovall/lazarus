@@ -2990,6 +2990,19 @@ https://www.youtube.com/watch?v=8SbUC-UaAxE
 Where Are You Christmas by Taylor Momsen (with lyrics) | TvFilmVideos
 https://www.youtube.com/watch?v=eDAfUiVYZDw
 
+God told me Her name.
+
+In Greek it is Artemis.
+
+In Hebrew it is El.
+
+In Christiandom, it is Mary.
+
+In Islam, it is Allah.
+
+Khalid ibn al-Walid, a Profile of a Warrior | The Austin School
+https://www.youtube.com/watch?v=Ygi7KuSazn4
+
 
 ## Outro
 
