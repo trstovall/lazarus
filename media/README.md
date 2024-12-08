@@ -3003,6 +3003,15 @@ In Islam, it is Allah.
 Khalid ibn al-Walid, a Profile of a Warrior | The Austin School
 https://www.youtube.com/watch?v=Ygi7KuSazn4
 
+The Unbelievable Origins of Islam: From Stone-Preaching-Polytheism to Allah | \[Documentary\] | Vlad Racovita English
+https://www.youtube.com/watch?v=8hzQkq-3fZg
+
+The point of religion is to attain perfect communion with God.  But, which God(ess)?
+
+Truly, I tell you, there is a divine, maternal feminine.  There is a divine, paternal masculine.  There is a divine, hermaphroditic offspring.  God is the Holy Spirit.  God is the perfect unity formed from the divine parts.
+
+So it was before the rebellion.  So to shall it return.
+
 
 ## Outro
 
